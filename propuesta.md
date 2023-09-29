@@ -5,7 +5,7 @@ Por qué?
 Porque en las redes sociales vemos el contenido más viral.  
 Y no nos vemos entre nosotros.
 
-Que nadie te vea deprime y da ansiedad.
+Que nadie te vea hace mal. Da ansiedad y deprime.
 
 **Ronda** es el espacio para reencontrarnos. 
 
