@@ -24,3 +24,5 @@ y la **escena** floreció.
 </span>
 
 <img src="logo.png" alt="Logo" width="199" height="178">
+
+<link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
