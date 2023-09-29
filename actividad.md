@@ -2,6 +2,8 @@
 
 La Ronda de escritura es un evento virtual en que nos leemos y comentamos los textos mutuamente.
 
+Después de comentar cuatro textos, vas a recibir cuatro devoluciones sobre el texto que compartiste.
+
 Cómo participar?
 
 ### 1 - Subí el texto con el que vas a participar en [este form](https://docs.google.com/forms/d/e/1FAIpQLSfBQSVFF_tLBaIyOuQz0EAuvLMUi-s2ynmmE2HXWmXRVCzfdA/viewform?usp=sf_link) hasta las 13:00 del Sábado 30 de septiembre.
