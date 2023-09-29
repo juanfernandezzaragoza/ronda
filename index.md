@@ -17,10 +17,10 @@ Se achicó el **escenario**
 y la **escena** floreció.  
 
 <span style="margin-right: 10px;">
-  <a href="actividad.md" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Participá</a>
+  <a href="actividad.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Participá</a>
 </span>
 <span>
-  <a href="propuesta.md" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Por qué Ronda?</a>
+  <a href="propuesta.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Por qué Ronda?</a>
 </span>
 
 <img src="logo_medium.png" alt="Logo" width="200" height="181">
