@@ -18,6 +18,6 @@ y la **escena** floreció.
 
 **Ronda**    
 
-[<span style="padding: 10px 20px; background-color: #007BFF; color: #FFFFFF; border: none; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](actividad.md)
+[<span style="padding: 10px 20px; background-color: #DDDDDD; color: #FFFFFF; border: none; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](actividad.md)
 
 <img src="logo_medium.png" alt="Logo" width="200" height="181">
