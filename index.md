@@ -1,4 +1,4 @@
-![](logo.png)
+<img src="logo_medium.png" alt="Logo" width="200" height="181">
 
 La red se había vuelto  
 una sola multitud  
