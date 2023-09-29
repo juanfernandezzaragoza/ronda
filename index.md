@@ -1,4 +1,4 @@
-![logo.svg]()
+![logo.png]()
 
 La red se había vuelto
 una sola multitud
@@ -19,4 +19,5 @@ Se achicó el **escenario**
 y la **escena** floreció.
 
 **Ronda**
+
 [Participá](actividad.md)
