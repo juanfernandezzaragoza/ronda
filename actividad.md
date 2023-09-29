@@ -21,3 +21,8 @@ Cómo participar?
 ### 3 - Durante el Miércoles, te va a llegar tu texto junto a 4 comentarios como mínimo.
 
 - También vamos a armar una compaginación con todos los textos que se escribieron.
+  
+
+<a href="index.md">
+  <img src="logo_medium.png" alt="Logo" width="200" height="181">
+</a>
