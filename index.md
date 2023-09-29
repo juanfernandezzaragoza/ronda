@@ -1,22 +1,22 @@
 ![](logo.png)
 
-La red se había vuelto </br>
-una sola multitud </br>
+La red se había vuelto  
+una sola multitud  
 y un solo foco. 
 
-Un espectáculo </br>
-con el precio </br>
+Un espectáculo  
+con el precio  
 de volvernos **invisibles**.
 
-Ansiedad, depresión, </br>
+Ansiedad, depresión,  
 sobremedicación.
 
-Un día, el foco se atenuó </br>
-y se multiplicó </br>
+Un día, el foco se atenuó   
+y se multiplicó   
 y volvimos a **vernos**.
 
-Se achicó el **escenario** </br>
+Se achicó el **escenario**   
 y la **escena** floreció.
 
-**Ronda** </br>
+**Ronda**    
 [Participá](actividad.md)
