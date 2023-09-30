@@ -6,7 +6,7 @@ Después de comentar cuatro textos, vas a recibir cuatro devoluciones sobre el t
 
 Cómo participar?
 
-### 1 - Subí el texto con el que vas a participar en [este form](https://docs.google.com/forms/d/e/1FAIpQLSfBQSVFF_tLBaIyOuQz0EAuvLMUi-s2ynmmE2HXWmXRVCzfdA/viewform?usp=sf_link) hasta las 13:00 del Sábado 30 de septiembre.
+### 1 - Subí el texto con el que vas a participar en [este form](https://docs.google.com/forms/d/e/1FAIpQLSfBQSVFF_tLBaIyOuQz0EAuvLMUi-s2ynmmE2HXWmXRVCzfdA/viewform?usp=sf_link) hasta las 15:00 del Sábado 30 de septiembre.
 
 - Puede ser poesía, ficción, ensayo o lo que quieras.
 - Extensión máxima de 800 palabras. No hay mínimo.
