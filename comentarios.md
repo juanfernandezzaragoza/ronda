@@ -121,6 +121,8 @@ la negación a negar, porque también es parte necesaria de afirmar
 un grupo de gente que le falta cariño  
 
     //si eso falta, qué es lo que sobra?  
+
+    
 el cariño  
 no, pero acá te estoy dando unas  
 es lo que lo hace vivir, y lo único que se manifiesta  
