@@ -4,7 +4,7 @@ La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentam
 
 [<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Anotate</span>](https://forms.gle/DT8x9hfWcRtJekAq8)
 
-Cómo participar?
+## Cómo participar?
 
 ### 1 - Para anotarte, subí el texto con el que vas a participar en [este Form](https://forms.gle/DT8x9hfWcRtJekAq8) hasta el sábado a las 23.
 
