@@ -8,7 +8,7 @@ La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentam
 
 ### 1 - Para anotarte, subí el texto con el que vas a participar en [este Form](https://forms.gle/DT8x9hfWcRtJekAq8) hasta el sábado a las 23.
 
-- Extensión **máxima 400 palabras**. No hay mínimo.
+- Extensión **máxima 650 palabras**. No hay mínimo.
 - Puede ser poesía, ficción, ensayo o lo que quieras.
 - Puede ser un texto viejo o uno que escribas para la ocasión.
 
