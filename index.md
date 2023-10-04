@@ -17,7 +17,7 @@ Se achicó el **escenario**
 y la **escena** floreció.  
 
 <span style="margin-right: 10px;">
-  <a href="actividad.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Cómo participar</a>
+  <a href="escritura.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Cómo participar</a>
 </span>
 <span>
   <a href="propuesta.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Por qué Ronda</a>
