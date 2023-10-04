@@ -29,3 +29,5 @@ Cómo participar?
 <a href="index.html">
   <img src="logo.png" alt="Logo" width="199" height="178">
 </a>
+
+<link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
