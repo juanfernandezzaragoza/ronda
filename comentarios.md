@@ -111,15 +111,16 @@ el de mantener la ilusión de una identidad individual
 esperemos que no  
 esperemos que se mueva  
 
-                                     //digresión  
-                                       mejor que esperar es desear, porque desear es hacer  
-                                      fin de la digresión//  
+    //digresión  
+    mejor que esperar es desear, 
+    porque desear es hacer  
+    fin de la digresión//  
 
 
 la negación a negar, porque también es parte necesaria de afirmar  
 un grupo de gente que le falta cariño  
 
-                                     //si eso falta, qué es lo que sobra?  
+    //si eso falta, qué es lo que sobra?  
 el cariño  
 no, pero acá te estoy dando unas  
 es lo que lo hace vivir, y lo único que se manifiesta  
