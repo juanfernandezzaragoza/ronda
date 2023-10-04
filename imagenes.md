@@ -1,7 +1,5 @@
 # Ronda de Imágenes - Miércoles 11 de Octubre
 
-<link rel="shortcut icon" type="image/x-icon" href="favicon.ico"> 
-
 La Ronda de imágenes es un evento virtual para compartir y comentar imágenes. 
 
 Subís una imagen, comentás 3 fotos de otrxs participantes, y recibís 3 comentarios a tu imagen.
@@ -26,3 +24,5 @@ Subís una imagen, comentás 3 fotos de otrxs participantes, y recibís 3 coment
 ### 3 - Durante el Miércoles, te va a llegar tu imagen junto a 3 comentarios como mínimo.
 
 -También vamos a armar una compaginación con todas las imágenes que se comentaron.
+
+<link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
