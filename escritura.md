@@ -1,6 +1,6 @@
 # Ronda de Escritura - Martes 10 de Octubre
 
-La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentamos los textos mutuamente. Tras comentar 3 textos ajenos recibís 3 devoluciones a tu texto.
+La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentamos los textos mutuamente. Después de comentar 3 textos de otras personas recibís 3 devoluciones a tu texto.
 
 [<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Anotate</span>](https://forms.gle/DT8x9hfWcRtJekAq8)
 
@@ -12,7 +12,7 @@ La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentam
 - Puede ser poesía, ficción, ensayo o lo que quieras.
 - Puede ser un texto viejo o uno que escribas para la ocasión.
 
-### 2 - Desde las 17:00 del Sábado 30 de septiembre te va a llegar un correo con 3 textos para que comentes.
+### 2 - Desde las 17:00 del Sábado te va a llegar un correo con 3 textos para que comentes.
 
 - Es **obligatorio** comentar los 3 textos que te tocan.
 - Podés comentarlos **hasta las 23:00 del Martes 10** de octubre.
