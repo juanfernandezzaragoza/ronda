@@ -1,5 +1,9 @@
 # Ronda de Escritura
 
+<link rel="shortcut icon" type="image/x-icon" href="favicon.ico"> 
+
+[<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](escritura.md)
+
 ## Rondapreguntas - por Manoni
 
 Que es lo que pega la vuelta?  
