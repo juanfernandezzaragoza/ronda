@@ -105,8 +105,6 @@ PD: un detalle, cuando decís "No hablé de nadie con el monstruo." te referís 
 
 
 ## Breve traducción sobre estar "en una" - por Umi
-
-Breve traducción sobre estar "en una"  
   
 Fue una semana de pedirle al universo que me dé un mimito,  
   
@@ -545,49 +543,49 @@ Las letras, la literatura, en fin, el arte en su maravillosa e incompleta luz so
 
 ## No tiene titulo - por Gon
 
-   lugar donde el tiempo no existe, 
-   luz nos oxigena, 
-   aire sana, 
-  s sonidos llenan el espacio, 
-   espacio es simplemente un juego, 
-  s juegos dan forma a la razón, 
-   razón pierde sentido, 
-  s sentidos se vuelven colores, 
-  s colores son experiencias, 
-   experiencia es efímera,
-   efímero es tangible, 
-   tangible es transparente y la existencia es un baile, 
-   baile es compartido y compartir es su única finalidad, 
-   energía es sólo un hilo que envuelve al cosmos 
-  el cosmos no es más que el pensamiento 
-  e de la nada nace 
-  en la nada muere y vuelve a nacer 
-  las palabras nunca alcanzan porque la experiencia siempre se siente única, 
-   experiencia siempre te cuenta la historia misma de que es tu propia historia, 
-  storia forjada en el engaño de los mundos en blanco como el papel donde escribo, 
-  nde cada palabra parece una pregunta y cada pregunta es una afirmación, 
-  nde no entiendo nada y ya sé todo y cuando entiendo me doy cuenta de que no sé nada, 
-  te lugar es acaso la vida? 
-  
-   acá y es ahora y es siempre y es constante? 
-  dónde está? 
-  nde se siente? 
-  ándo es? 
-  ándo llega?
-  mo somos? 
-  
-  iste o simplemente escribo de mi anhelo eterno por querer seguir siendo parte de la incesante experiencia, de la danza cósmica que jamas podrá encontrar fin, 
-   eterna ramificación de todos los caudales donde ya nada cuadra y los números jamás explicarán nada y el tiempo, 
-   tiempo se paraliza, 
-   corazón ya no late y las vibraciones cesan, 
-  r un instante, 
-  r un momento, 
-  r un sentir, 
-  r una mirada, 
-  r un abrazo, 
-  r una palabra o una caricia o un te amo y ya nada más importa porque compartirme y experimentarte es todo lo que me hace bien en esta vida y al final tanto como al principio, simplemente agradezco 
-  en el silencio 
-nace la magia.
+El lugar donde el tiempo no existe,   
+la luz nos oxigena,   
+el aire sana,   
+los sonidos llenan el espacio,   
+el espacio es simplemente un juego,   
+los juegos dan forma a la razón,   
+la razón pierde sentido,   
+los sentidos se vuelven colores,   
+los colores son experiencias,   
+la experiencia es efímera,  
+lo efímero es tangible,   
+lo tangible es transparente y la existencia es un baile,   
+el baile es compartido y compartir es su única finalidad,   
+la energía es sólo un hilo que envuelve al cosmos    
+y el cosmos no es más que el pensamiento    
+que de la nada nace   
+y en la nada muere y vuelve a nacer  
+y las palabras nunca alcanzan porque la experiencia siempre se siente única,  
+la experiencia siempre te cuenta la historia misma de que es tu propia historia,  
+historia forjada en el engaño de los mundos en blanco como el papel donde escribo,   
+donde cada palabra parece una pregunta y cada pregunta es una afirmación,   
+donde no entiendo nada y ya sé todo y cuando entiendo me doy cuenta de que no sé nada,   
+este lugar es acaso la vida?   
+
+Es acá y es ahora y es siempre y es constante?   
+Y dónde está?   
+Dónde se siente?   
+Cuándo es?  
+Cuándo llega? 
+Cómo somos?  
+
+Existe o simplemente escribo de mi anhelo eterno por querer seguir siendo parte de la incesante experiencia, de la danza cósmica que jamas podrá encontrar fin,  
+la eterna ramificación de todos los caudales donde ya nada cuadra y los números jamás explicarán nada y el tiempo,  
+el tiempo se paraliza,  
+mi corazón ya no late y las vibraciones cesan,   
+por un instante,  
+por un momento,  
+por un sentir,  
+por una mirada,  
+por un abrazo,  
+por una palabra o una caricia o un te amo y ya nada más importa porque compartirme y experimentarte es todo lo que me hace bien en esta vida y al final tanto como al principio, simplemente agradezco  
+y en el silencio  
+nace la magia.  
 
 ### Migor Beltsmaun comentó:
 
@@ -900,7 +898,6 @@ Muy bueno Clara, muy sentido el poema y me gusta que sea un poema poema y no un 
 
 ## Rondapreguntas - por Manoni
 
-Rondapreguntas  
 Que es lo que pega la vuelta?  
 La ronda se mueve o está quieta?  
 En la ronda nos paramos sobre una pata con la mano en el mentón? O bailamos?  
@@ -921,7 +918,6 @@ Las comienzo a tener yo cuando el tengo es tenemos?
 Cual es el pudor de compartirles este texto?  
 Lo que no podemos manifestar hubiera salvado al mundo?  
   
-*fuí al contador solo habiendo decidido cerrar y eran 799, que loco.  
 Mariano Herraiz, se fue Septiembre de 2023.
 
 ### Migor Beltsmaun comentó:
