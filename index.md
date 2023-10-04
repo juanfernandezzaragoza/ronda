@@ -21,11 +21,10 @@ y la **escena** floreció.
 </span>
 <span>
   <a href="propuesta.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Por qué Ronda</a>
-</span>
-<span>
-  <a href="comentarios.html" style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease; text-decoration: none;">Rondas Anteriores</a>
-</span>
+</span></br>
 
+<a href="comentarios.html">
 <img src="logo.png" alt="Logo" width="199" height="178">
+</a>
 
 <link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
