@@ -1,4 +1,139 @@
 # Ronda de Escritura
+
+## Rondapreguntas - por Manoni
+
+Que es lo que pega la vuelta?  
+La ronda se mueve o está quieta?  
+En la ronda nos paramos sobre una pata con la mano en el mentón? O bailamos?  
+Que es lo que se ve desde el centro?  
+Quienes están afuera?  
+Que es lo que la ronda tiene que cerrar para abrir la comunicación?  
+Vamos a estar a salvo?  
+Voy a corregir este texto?  
+Que pretendemos de lxs otrxs?  
+Murió la intelectualidad?  
+Hacemos estantes o tiramos los libros viejos?  
+Cuando empezamos a tener pánico digital?  
+Con qué nos distraíamos antes de internet?  
+Hay algo que curar? Hay adicciones que asumir?  
+Como se establece el limite entre lo individual y lo plural?  
+Tenemos respuestas para estas preguntas?  
+Las comienzo a tener yo cuando el tengo es tenemos?  
+Cual es el pudor de compartirles este texto?  
+Lo que no podemos manifestar hubiera salvado al mundo?  
+  
+Mariano Herraiz, se fue Septiembre de 2023.
+
+### Migor Beltsmaun comentó:
+
+\- Quiénes están afuera?  
+  
+Somos bichos de comunidades chicas. Cuando la sociedad es grande, simulamos comunidades chicas.  
+  
+Eso son la iglesia evangélica del barrio, la peña de Boca, el grupo de memes en Whatsapp y el grupo de amigos del colegio.  
+  
+Para que haya una Ronda, tiene que haber gente afuera. Pero podemos estar en muchas rondas. Una ronda única es una secta. Muchas rondas conectadas son un pueblo.   
+  
+\- Murió la intelectualidad?  
+  
+Vamos a rescatarla.  
+  
+La intelectualidad muere cuando muere la comunidad. Cuando todos se conectan con todos, ya no hay ronda. Cuando todos vemos el video más viral no escuchamos el chiste del de al lado. Ni su idea.  
+  
+Cuando dejamos de escuchar la idea del de al lado, no aparecen ideas nuevas.  
+  
+La intelectualidad que sirve, la que busca puntos débiles de Goliat y construye alternativas, renacerá con la Ronda.  
+  
+\- Cuando empezamos a tener pánico digital?  
+  
+Aunque no lo sepamos, nos comparamos. Nos importa lo que piensan de nosotros.  
+  
+El feed muestra las fotos con más likes. Las fotos consiguen likes cuando muestran belleza, riqueza o gracia. El feed muestra la gente con más belleza, riqueza y gracia que conocemos.  
+  
+Somos bichos de comunidades chicas. Cuando el feed es la comunidad, somos los más feos, pobres y aburridos. Hace mal, y es mentira.  
+  
+Y da pánico digital.  
+  
+\- Lo que no podemos manifestar hubiera salvado al mundo?  
+  
+Sí.  
+  
+Manifestemos.  
+  
+No es suficiente hablar. Hay que escucharnos.  
+  
+Construyamos Ronda.
+
+### César Zorba comentó:
+
+Un asterisco rojo indica que la pregunta es obligatoria.  
+¿Pero es obligatorio preguntar?  
+¿Qué es una pregunta cuando se nos pide una respuesta? ¿Un acto de rebeldía o de timidez?  
+¿Y una pregunta retórica? ¿Es un cuestionamiento o sólo una pirueta?  
+¿150 palabras en preguntas valen más que 150 palabras en respuestas?  
+¿Qué diferencia hace no usar el signo de interrogación de apertura? ¿Genera un impacto? ¿Un estorbo? ¿Altera la interpretación? ¿Afecta la comunicación?  
+¿Cuáles son las reglas para preguntar? ¿Puedo preguntar si puedo romperlas? ¿Puedo romperlas sin preguntar? ¿Puedo preguntar lo que no quiero que me respondas? ¿De qué sirve terminar nuestro texto, nuestra vida, con un signo de interrogación? ¿Es que tiene que servir para algo vivir, escribir, preguntar? La pregunta ¿busca una herramienta para salvar el mundo? Lo que podría cambiar el mundo ¿está en una palabra? ¿En una respuesta? ¿Entonces para qué pregunto? ¿No sería mejor terminar en un punto? ¿Dar una respuesta, por más tonta e inocente que sea, no sería mejor que dar vueltas alrededor de un centro inexistente? ¿O acaso animarse a responder sin haberse preguntado nada es la actitud del fascista? No me animo a dar una respuesta, y no quiero seguir preguntando.
+
+### Mariano comentó:
+
+Cual es la de hacerse tantas preguntas?  
+Te interesa responder alguna?  
+Lo retorico es más verdad?  
+O es menos verdad?  
+O no pretende ser verdad?  
+Por que corregirías este texto?  
+No te parece que esta bueno?  
+Hay algo que salvar?  
+La atención da sentido?  
+Importa no distraerse?  
+Que nos estamos perdiendo sin ronda?  
+Quienes nos estamos perdiendo sin ronda?  
+A quienes nos estamos perdiendo sin ronda?  
+Querrías salvar al mundo?  
+Porque yo siempre quise salvar al mundo?  
+
+
+### Laguna comentó:
+
+Iba a poner que me parece fundamental hacerse cargo de la escritura y que ésta, en esta instancia debe estar direccionada al lector. Es decir, pensé en que eran un montón de preguntas interesantes pero que no llegaba a encontrar un hilo conductor. Después cuando hablaste de este contexto en particular sentí verdaderamente que estaba yo dentro del texto que escribiste, que estabas apelando directamente a nosotros, pocas veces pasa de leer algo confeccionado especialmente para la ocasión, me fue muy grato. Me pareció que el texto jugaba con lo indecible y de lo poderoso que puede llegar a ser una voz que eleva hacia arriba su tono en son de la pregunta constantemente, como un canto de picos de olas donde hay que surfear a través de la contestación que se le intenta dar a cada una de ellas. Igual quería preguntar ¿Es intencionado el no abrir el signo de pregunta? ¿Es parte del efecto? Sea como fuere, no podía evitar en la mutabilidad e inmutabilidad del signo lingüístico siendo esta forma de preguntar una aceptada por las redes sociales y no en instancias formales, creo que en ese sentido se reforzaba el sentido del texto. ¿Es algo que hay que curar? ¿Hay algo que curar? ¿por qué haríamos esto de pasarnos textos si no es para hablarnos a través de un medio diferente? Creo que al no dar ninguna respuesta refuerza la última pregunta. Lo que no se dice, existe? creo fervientemente que sí y es lo que intentamos desentrañar de los textos de los demás, y de los propios por supuesto. Para leer diferente, para hablarnos diferente… sentí que me pasabas un porro al final. Je 😀
+
+### tin. comentó:
+
+me pareció divertido el enfoque de preguntas así que me voy a prender al juego y contestarlas pero en otro orden:  
+  
+que nos amen  
+cuando empezó a centralizarse  
+con otros vicios  
+yo no voy a confesar nada, solo compartir mis heridas a ver si las podemos curar (o al menos armar un charquito de sangre juntxs)  
+nosotrxs (lxs otrxs)  
+según lo que necesitemos, si es en movimiento mejor  
+el de mantener la ilusión de una identidad individual  
+esperemos que no  
+esperemos que se mueva  
+
+                                     //digresión  
+                                       mejor que esperar es desear, porque desear es hacer  
+                                      fin de la digresión//  
+
+
+la negación a negar, porque también es parte necesaria de afirmar  
+un grupo de gente que le falta cariño  
+
+                                     //si eso falta, qué es lo que sobra?  
+el cariño  
+no, pero acá te estoy dando unas  
+es lo que lo hace vivir, y lo único que se manifiesta  
+bailemos  
+lo habrás corregido?  
+la muy maldita insiste en vivir  
+regalémoslos  
+las comenzamos*
+
+<p align="center">
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a></p>
+
 ## Abuela ahora que hago - por Joaquin
 
 Abuela ahora que hago   
@@ -756,6 +891,18 @@ Buena resemantización. Siento que es un texto que leería en un panfleto creado
 
 Este cuento es una gran alegoría de la revolución cubana en términos de empresa. Es interesante cómo está planteado desde su propia mira, cómo juega con los términos en inglés sobre el desarrollo de la empresa, y cómo critica el rol del estado dentro del sistema capitalista. Considero que está muy bien logrado, que las comparaciones son muy atinadas, y que da mucho que pensar sobre el sistema en que vivimos, y sobre las posibilidades de vivir de otra manera. Me gusta el final, cómo resignifica todo el cuento, e invita a leerlo de nuevo, con otra mirada. El título, en consonancia con “Rebelión en la Granja” de Orwell, presenta un sentimiento de paz una vez que esa granja o territorio ha sido conquistada y que la administración ha cambiado de manos. Ojalá esa paz pueda extenderse a la gran granja que es la tierra, algún día. Luchamos para lograr esa paz, y aguardamos ese instante redentor. 
 
+### tin. comentó:
+
+Creo que ya te lo he comentado pero el público se renueva (Heráclito)  
+  
+Muy buen texto, en base a tus simpatías dirigís tus afectos positivos o negativos hacia los personajes y conceptos que aparecen y al final terminás con las simpatías confundidas, vengas de donde vengas  
+  
+Me hizo reír mientras lo leía  
+  
+También me parece muy didáctico al momento de ilustrar la intuición de que tanto el Estado como las empresas son organizaciones productivas (o redes de ellas, cuál es la diferencia?), en eso la contracara de este texto es el del magnate liberal. Y esa intuición es clave, porque levanta una pregunta que no debería dejar dormir a un liberal honesto: si lo más eficiente es el mercado, por qué las empresas grandes triunfan? cuál es la diferencia entre el Estado y una empresa muy muy grande?  
+  
+Para agregar a esto debo decir: AGUANTE FIDEL CUBA Y EL COMUNISMO
+
 <p align="center">
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
@@ -894,110 +1041,6 @@ Muy bueno Clara, muy sentido el poema y me gusta que sea un poema poema y no un 
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a></p>
-
-
-## Rondapreguntas - por Manoni
-
-Que es lo que pega la vuelta?  
-La ronda se mueve o está quieta?  
-En la ronda nos paramos sobre una pata con la mano en el mentón? O bailamos?  
-Que es lo que se ve desde el centro?  
-Quienes están afuera?  
-Que es lo que la ronda tiene que cerrar para abrir la comunicación?  
-Vamos a estar a salvo?  
-Voy a corregir este texto?  
-Que pretendemos de lxs otrxs?  
-Murió la intelectualidad?  
-Hacemos estantes o tiramos los libros viejos?  
-Cuando empezamos a tener pánico digital?  
-Con qué nos distraíamos antes de internet?  
-Hay algo que curar? Hay adicciones que asumir?  
-Como se establece el limite entre lo individual y lo plural?  
-Tenemos respuestas para estas preguntas?  
-Las comienzo a tener yo cuando el tengo es tenemos?  
-Cual es el pudor de compartirles este texto?  
-Lo que no podemos manifestar hubiera salvado al mundo?  
-  
-Mariano Herraiz, se fue Septiembre de 2023.
-
-### Migor Beltsmaun comentó:
-
-\- Quiénes están afuera?  
-  
-Somos bichos de comunidades chicas. Cuando la sociedad es grande, simulamos comunidades chicas.  
-  
-Eso son la iglesia evangélica del barrio, la peña de Boca, el grupo de memes en Whatsapp y el grupo de amigos del colegio.  
-  
-Para que haya una Ronda, tiene que haber gente afuera. Pero podemos estar en muchas rondas. Una ronda única es una secta. Muchas rondas conectadas son un pueblo.   
-  
-\- Murió la intelectualidad?  
-  
-Vamos a rescatarla.  
-  
-La intelectualidad muere cuando muere la comunidad. Cuando todos se conectan con todos, ya no hay ronda. Cuando todos vemos el video más viral no escuchamos el chiste del de al lado. Ni su idea.  
-  
-Cuando dejamos de escuchar la idea del de al lado, no aparecen ideas nuevas.  
-  
-La intelectualidad que sirve, la que busca puntos débiles de Goliat y construye alternativas, renacerá con la Ronda.  
-  
-\- Cuando empezamos a tener pánico digital?  
-  
-Aunque no lo sepamos, nos comparamos. Nos importa lo que piensan de nosotros.  
-  
-El feed muestra las fotos con más likes. Las fotos consiguen likes cuando muestran belleza, riqueza o gracia. El feed muestra la gente con más belleza, riqueza y gracia que conocemos.  
-  
-Somos bichos de comunidades chicas. Cuando el feed es la comunidad, somos los más feos, pobres y aburridos. Hace mal, y es mentira.  
-  
-Y da pánico digital.  
-  
-\- Lo que no podemos manifestar hubiera salvado al mundo?  
-  
-Sí.  
-  
-Manifestemos.  
-  
-No es suficiente hablar. Hay que escucharnos.  
-  
-Construyamos Ronda.
-
-### César Zorba comentó:
-
-Un asterisco rojo indica que la pregunta es obligatoria.  
-¿Pero es obligatorio preguntar?  
-¿Qué es una pregunta cuando se nos pide una respuesta? ¿Un acto de rebeldía o de timidez?  
-¿Y una pregunta retórica? ¿Es un cuestionamiento o sólo una pirueta?  
-¿150 palabras en preguntas valen más que 150 palabras en respuestas?  
-¿Qué diferencia hace no usar el signo de interrogación de apertura? ¿Genera un impacto? ¿Un estorbo? ¿Altera la interpretación? ¿Afecta la comunicación?  
-¿Cuáles son las reglas para preguntar? ¿Puedo preguntar si puedo romperlas? ¿Puedo romperlas sin preguntar? ¿Puedo preguntar lo que no quiero que me respondas? ¿De qué sirve terminar nuestro texto, nuestra vida, con un signo de interrogación? ¿Es que tiene que servir para algo vivir, escribir, preguntar? La pregunta ¿busca una herramienta para salvar el mundo? Lo que podría cambiar el mundo ¿está en una palabra? ¿En una respuesta? ¿Entonces para qué pregunto? ¿No sería mejor terminar en un punto? ¿Dar una respuesta, por más tonta e inocente que sea, no sería mejor que dar vueltas alrededor de un centro inexistente? ¿O acaso animarse a responder sin haberse preguntado nada es la actitud del fascista? No me animo a dar una respuesta, y no quiero seguir preguntando.
-
-### Mariano comentó:
-
-Cual es la de hacerse tantas preguntas?  
-Te interesa responder alguna?  
-Lo retorico es más verdad?  
-O es menos verdad?  
-O no pretende ser verdad?  
-Por que corregirías este texto?  
-No te parece que esta bueno?  
-Hay algo que salvar?  
-La atención da sentido?  
-Importa no distraerse?  
-Que nos estamos perdiendo sin ronda?  
-Quienes nos estamos perdiendo sin ronda?  
-A quienes nos estamos perdiendo sin ronda?  
-Querrías salvar al mundo?  
-Porque yo siempre quise salvar al mundo?  
-
-
-### Laguna comentó:
-
-Iba a poner que me parece fundamental hacerse cargo de la escritura y que ésta, en esta instancia debe estar direccionada al lector. Es decir, pensé en que eran un montón de preguntas interesantes pero que no llegaba a encontrar un hilo conductor. Después cuando hablaste de este contexto en particular sentí verdaderamente que estaba yo dentro del texto que escribiste, que estabas apelando directamente a nosotros, pocas veces pasa de leer algo confeccionado especialmente para la ocasión, me fue muy grato. Me pareció que el texto jugaba con lo indecible y de lo poderoso que puede llegar a ser una voz que eleva hacia arriba su tono en son de la pregunta constantemente, como un canto de picos de olas donde hay que surfear a través de la contestación que se le intenta dar a cada una de ellas. Igual quería preguntar ¿Es intencionado el no abrir el signo de pregunta? ¿Es parte del efecto? Sea como fuere, no podía evitar en la mutabilidad e inmutabilidad del signo lingüístico siendo esta forma de preguntar una aceptada por las redes sociales y no en instancias formales, creo que en ese sentido se reforzaba el sentido del texto. ¿Es algo que hay que curar? ¿Hay algo que curar? ¿por qué haríamos esto de pasarnos textos si no es para hablarnos a través de un medio diferente? Creo que al no dar ninguna respuesta refuerza la última pregunta. Lo que no se dice, existe? creo fervientemente que sí y es lo que intentamos desentrañar de los textos de los demás, y de los propios por supuesto. Para leer diferente, para hablarnos diferente… sentí que me pasabas un porro al final. Je 😀
-
-<p align="center">
-<a href="index.html">
-<img src="logo.png" alt="Logo" width="119" height="107">
-</a></p>
-
 
 ## Sobre cómo el indie rock devino en música para salas de espera - por TomassonRG
 
