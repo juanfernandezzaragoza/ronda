@@ -55,6 +55,8 @@ Es interesante como, ante la muerte de un ser querido, el cuerpo pasa a converti
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Alimento al monstruo - por César Zorba
 
 Cuando estoy solo alimento al monstruo, para que no me coma. Él tiene un hambre brutal. Sus entrañas son una caverna bestial. Su estómago ruge cuando me ve llegar.  
@@ -98,6 +100,8 @@ PD: un detalle, cuando decís "No hablé de nadie con el monstruo." te referís 
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Breve traducción sobre estar "en una" - por Umi
 
 Breve traducción sobre estar "en una"  
@@ -232,25 +236,27 @@ Este poema me guió, directamente, a esta idea: el desamor es el atardecer del o
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Cualquier camino con corazón - por Marcos Matías
 
 “... nada más puede intentarse que establecer el principio y la dirección de un camino infinitamente largo. Pretender cualquier totalización sistemática y definitiva sería, al menos, un autoengaño”.  
-- Georg Simmel  
+\- Georg Simmel  
   
 Con esa cita de ese sociólogo empieza uno de mis libros favoritos, Las enseñanzas de don Juan, tema de la Ronda de hoy, escrito por el peruano Carlos Castaneda. Es el primer libro de una serie de doce, y a pesar de su presunto contenido ficcional fue aceptado como la tesis de maestría en antropología de Carlos en UCLA en 1968. En esta obra de antropología especulativa el autor cuenta sus andanzas estudiando y experimentando la forma de vida de un “hombre de conocimiento” (aka chamán) de un pueblo indígena (los yaquis) de Sonora (en el noreste de México) llamado don Juan Matus. Carlos se representa a sí mismo como un aprendiz humilde, bienintencionado y preguntón. A don Juan, en cambio, como un sabio maestro que instruye con claridad, misterio, humor, a veces hartazgo, y que en un principio ni siquiera quería tomar a Carlos como discípulo. Pero veámoslo directamente del libro:  
   
-“- ¿Me va usted a enseñar, don Juan?  
-- ¿Por qué quieres emprender un aprendizaje así?  
-- Mi única razón es que quiero aprender, sólo por saber. Pero le aseguro, don Juan, que mis intenciones no son malas.  
-- Te creo. Te he fumado.  
-- ¿Cómo dice?  
-- No importa ya. Conozco tus intenciones.  
-- ¿Quiere usted decir que vio a través de mí?  
-- Puedes decirlo así.  
-- ¿Entonces me enseñará?  
-- ¡No!  
-- ¿Porque no soy indio?  
-- No. Porque no conoces tu corazón. Lo importante es que sepas exactamente por qué quieres comprometerte. Aprender es un acto de lo más serio. Si fueras indio, tu solo deseo sería suficiente. Muy pocos indios tienen ese deseo”.  
+“\- ¿Me va usted a enseñar, don Juan?  
+\- ¿Por qué quieres emprender un aprendizaje así?  
+\- Mi única razón es que quiero aprender, sólo por saber. Pero le aseguro, don Juan, que mis intenciones no son malas.  
+\- Te creo. Te he fumado.  
+\- ¿Cómo dice?  
+\- No importa ya. Conozco tus intenciones.  
+\- ¿Quiere usted decir que vio a través de mí?  
+\- Puedes decirlo así.  
+\- ¿Entonces me enseñará?  
+\- ¡No!  
+\- ¿Porque no soy indio?  
+\- No. Porque no conoces tu corazón. Lo importante es que sepas exactamente por qué quieres comprometerte. Aprender es un acto de lo más serio. Si fueras indio, tu solo deseo sería suficiente. Muy pocos indios tienen ese deseo”.  
   
 Por ahí va la cosa. Mi podio de ficciones incluye también Siddharta y El lobo estepario, del alemán Hermann Hesse, y De amor y de sombra, de la chilena Isabel Allende, coherente con mi sangre “100%” europea y mi corazón 100% latinoamericano. Y hablando de corazones, con ese preámbulo va alguna sustancia un poco más aguda de don Juan, que dice así:  
   
@@ -343,11 +349,13 @@ Si mi camino hubiera hecho una parada en UCLA, habría escrito algo distinto?
 
 ### Nicolás Rosa comentó:
 
-Buenas! Te comento que he leído las enseñanzas de Don Juan (si bien hace mucho tiempo) y me pareció un libro maravilloso pero que no podría decir que compartimos esa afición ya que evidentemente es una obra que llega a vos de una forma especial. Comparto completamente tus reflexiones que se abren con la cita de Simmel acerca de la inconclusividad de todo recorrido (considerando conclusión en sentido de fin pero también de totalidad significativa en forma de unidad). Ver a Simmel allí me dispara de inmediato esta relación que de teje acerca de formas de pensamiento no-occidentales (si nos ponemos rigurosos, más acertado sería decir no-platónicas, en su sentido de negación pero también de de desconocimiento en el caso de Las Enseñanzas de Don Juan). Es conocida la crítica de los intelectuales románticos de la preguerra (Simmel, Weber, Mann) a los sistemas de pensamiento basados en la razón occidental están limitados por sus propios principios, sobre los que Alemania siempre se ha colocado en antípodas del resto de Europa, privilegiando formas de conocimiento que escapan a esta lógica fundamentados en un conocimiento más cercano a la cultura que a la civilización: aquel que se asientos sobre la intuición. Y es que en ese sentido cobra vida la frase de que la intuición nunca falla. La intuición nunca puede fallar porque en sí misma es un sentimiento que no puede ni busca ser validado por medio de las categorías lógicas que utiliza el razonamiento heredado de los griegos clásicos. Sí, puede no corresponderse a la realidad aquello que se intuye, pero no hay duda de que, de un modo que ciertamente evoca a Descartes acerca de otro elemento humano menos agraciado que el sentimiento y el cuerpo, la sensación es verdadera por la sola consciencia de ella. Esta puede sonar a una idea peligrosa, ciertamente lo es, pero es allí donde incluso lo no-racional supone también una serie de reglas que en Las enseñanzas regulan incluso el uso de la Ayahuasca como un consumo socialmente aceptado hasta cierto punto del recorrido. Tenemos tan incorporadas categorías netamente occidentales que no podemos evitar y con las que fatalmente entendemos el mundo por ello estás cosas se nos escapan, la idea de que Latinoamérica, Asia y aquella vieja pre-alemania pudieran vincularse no porque tengan en común algo que el resto de Europa no, sino porque hay algo que no tienen, que por suerte, hasta la globalización, les faltaba: un Platón. Carlos Castaneda es alguien que conoce bien de esta división. Conoce distintas comunidades donde no rige aquel estéril espíritu socrático, y a su vez ha escrito desde el espacio cúspide del dominio de la mers razón y la civilización: Estados Unidos. El propio nombre con el que en tu texto lo nombrás ya señala esa desterritorialización de la propia lengua, el gesto no solo de escribir en inglés para un público local sino de no poder escribir ni siquiera el propio nombre correctamente porque las máquinas de escribir estadounidenses carecen de la letra ñ.
+Buenas! Te comento que he leído las enseñanzas de Don Juan (si bien hace mucho tiempo) y me pareció un libro maravilloso pero que no podría decir que compartimos esa afición ya que evidentemente es una obra que llega a vos de una forma especial. Comparto completamente tus reflexiones que se abren con la cita de Simmel acerca de la inconclusividad de todo recorrido (considerando conclusión en sentido de fin pero también de totalidad significativa en forma de unidad). Ver a Simmel allí me dispara de inmediato esta relación que de teje acerca de formas de pensamiento no\-occidentales (si nos ponemos rigurosos, más acertado sería decir no\-platónicas, en su sentido de negación pero también de de desconocimiento en el caso de Las Enseñanzas de Don Juan). Es conocida la crítica de los intelectuales románticos de la preguerra (Simmel, Weber, Mann) a los sistemas de pensamiento basados en la razón occidental están limitados por sus propios principios, sobre los que Alemania siempre se ha colocado en antípodas del resto de Europa, privilegiando formas de conocimiento que escapan a esta lógica fundamentados en un conocimiento más cercano a la cultura que a la civilización: aquel que se asientos sobre la intuición. Y es que en ese sentido cobra vida la frase de que la intuición nunca falla. La intuición nunca puede fallar porque en sí misma es un sentimiento que no puede ni busca ser validado por medio de las categorías lógicas que utiliza el razonamiento heredado de los griegos clásicos. Sí, puede no corresponderse a la realidad aquello que se intuye, pero no hay duda de que, de un modo que ciertamente evoca a Descartes acerca de otro elemento humano menos agraciado que el sentimiento y el cuerpo, la sensación es verdadera por la sola consciencia de ella. Esta puede sonar a una idea peligrosa, ciertamente lo es, pero es allí donde incluso lo no\-racional supone también una serie de reglas que en Las enseñanzas regulan incluso el uso de la Ayahuasca como un consumo socialmente aceptado hasta cierto punto del recorrido. Tenemos tan incorporadas categorías netamente occidentales que no podemos evitar y con las que fatalmente entendemos el mundo por ello estás cosas se nos escapan, la idea de que Latinoamérica, Asia y aquella vieja pre\-alemania pudieran vincularse no porque tengan en común algo que el resto de Europa no, sino porque hay algo que no tienen, que por suerte, hasta la globalización, les faltaba: un Platón. Carlos Castaneda es alguien que conoce bien de esta división. Conoce distintas comunidades donde no rige aquel estéril espíritu socrático, y a su vez ha escrito desde el espacio cúspide del dominio de la mers razón y la civilización: Estados Unidos. El propio nombre con el que en tu texto lo nombrás ya señala esa desterritorialización de la propia lengua, el gesto no solo de escribir en inglés para un público local sino de no poder escribir ni siquiera el propio nombre correctamente porque las máquinas de escribir estadounidenses carecen de la letra ñ.
 
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Cuerpo - por Ian Mihura
 
 Cuerpo mío,   
@@ -398,6 +406,8 @@ Un poema de amor al cuerpo. El yo lírico reconoce la finitud de su objeto de de
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Invocación  - por Laguna
 
 Deslinde a la várice  
@@ -461,10 +471,10 @@ Según mi criterio, este poema, lleno de imágenes religiosas, teñidas de sangr
 
 me encantó! no sé mucho de poesía como para hacer un análisis pero te voy a decir las imágenes y recursos que me generaron goce estético a mí.  
   
-- el conjunto de los elementos santo, ángel de la guarda, vena, puñal  
-- las aliteraciones como desgracia-desagradecida, decible-decide  
-- el momento donde el santo le dicta al ángel. se me vino una imagen trastocadamente burocrática, onda policías en una escena del crimen. en el caso de los policías esa imagen ya suele tener un grado de trastoque: una escena tan sagrada como la muerte, recubierta de la actitud más banal e indiferente que hay. y en el caso de estos personajes celestiales esos contrastes se acentúan todavía más.   
-- "deslinde a la várice" me pareció de esas fórmulas que las tenés que pensar un ratito para que entren, y cuando llegan tienen una sutileza fuertísima.  
+\- el conjunto de los elementos santo, ángel de la guarda, vena, puñal  
+\- las aliteraciones como desgracia\-desagradecida, decible\-decide  
+\- el momento donde el santo le dicta al ángel. se me vino una imagen trastocadamente burocrática, onda policías en una escena del crimen. en el caso de los policías esa imagen ya suele tener un grado de trastoque: una escena tan sagrada como la muerte, recubierta de la actitud más banal e indiferente que hay. y en el caso de estos personajes celestiales esos contrastes se acentúan todavía más.   
+\- "deslinde a la várice" me pareció de esas fórmulas que las tenés que pensar un ratito para que entren, y cuando llegan tienen una sutileza fuertísima.  
   
 Muchas gracias por este texto <3  
 
@@ -472,9 +482,11 @@ Muchas gracias por este texto <3
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## La muerte: la gran transformación - por Agustin Iribarne
 
-Sobre ira, frustración, angustia y un dolor insoportable sembré una semilla de soledad, y germinó así la poesía triste en mí, como un catalizador, como el veneno que es remedio momentáneo: así operó en mí con sus garras de terciopelo que acariciaron mi alma entonces deshecha. Desvergonzada, sumida en traiciones y despecho, se fue pudriendo como agua estancada, como fruto maduro que rodó por la colina hasta las orillas del río negro. Allí mismo creció la flor del olvido, tan majestuosa como mortífera, que paralizaba a las abejas encantadas, obnubiladas ante ese destello sombrío. Sobre los cadáveres de estos fútiles insectos se desarrollaron –nuevos- parásitos inéditos, irreconocibles hasta por los biólogos más eruditos, mas sabios y conocedores.  
+Sobre ira, frustración, angustia y un dolor insoportable sembré una semilla de soledad, y germinó así la poesía triste en mí, como un catalizador, como el veneno que es remedio momentáneo: así operó en mí con sus garras de terciopelo que acariciaron mi alma entonces deshecha. Desvergonzada, sumida en traiciones y despecho, se fue pudriendo como agua estancada, como fruto maduro que rodó por la colina hasta las orillas del río negro. Allí mismo creció la flor del olvido, tan majestuosa como mortífera, que paralizaba a las abejas encantadas, obnubiladas ante ese destello sombrío. Sobre los cadáveres de estos fútiles insectos se desarrollaron –nuevos\- parásitos inéditos, irreconocibles hasta por los biólogos más eruditos, mas sabios y conocedores.  
   
 En ese penumbroso valle la Muerte descansó durante largas semanas de su lucha contra los ángeles luminosos de la Vida; y una vez recuperadas sus fuerzas, dio su paso inevitable firmemente, y la tierra tembló con un estertor de ciencia ficción. La hora anunciada se acercaba.   
   
@@ -484,7 +496,7 @@ Cuando creí todo perdido, apenas empezaba a encontrar mi verdadero camino.
   
 Bajo las densas y copiosas lluvias, recordé un viejo rezo que un extraño anciano me había enseñado en una plaza de mi pueblo tiempo atrás: al enunciarlo, la noche se avecinó con la fuerza de un huracán, borrando al día con la velocidad de un relámpago, como un látigo del cielo, aquel lugar donde habita el misterio. Vi entre el río negro cómo un manto de agua turbia se elevaba sobre los árboles: ¿era la muerte o la musa de la desidia? Su guadaña relucía como pura plata líquida, y en sus ojos se abrían dos abismos de piedras filosas, por lo que no tuve más dudas, y temblé como una hoja al viento. Me pregunté: ¿por qué salí de casa con este miedo y este odio devorador, desolador? Necesitaba aire; y ahora sólo respiro las ráfagas invencibles del sollozo.   
   
-Me quedé inmóvil como una estrella, arrepintiéndome de los últimos episodios que había sorteado inconscientemente. Ingresando al pánico, me arrebató la sorpresa al ver un hada gris topo que se acercaba, destilando polvo de reina anegada. Sucesivos alaridos incomprensibles le dieron escalofríos a mi espíritu, frágil cual barato cristal. Con mis manos bajas, rendido al ataque, imploré el perdón. El hada tosió con una fuerza sobrenatural, y luego dijo una sentencia en perfecto castellano: “si quieres seguir viviendo, desbes morir; así como te presentas sólo acabarás auto-destruyéndote, aniquilándo a tu entorno y a ti mismo. La transformación es tu única solución”.  
+Me quedé inmóvil como una estrella, arrepintiéndome de los últimos episodios que había sorteado inconscientemente. Ingresando al pánico, me arrebató la sorpresa al ver un hada gris topo que se acercaba, destilando polvo de reina anegada. Sucesivos alaridos incomprensibles le dieron escalofríos a mi espíritu, frágil cual barato cristal. Con mis manos bajas, rendido al ataque, imploré el perdón. El hada tosió con una fuerza sobrenatural, y luego dijo una sentencia en perfecto castellano: “si quieres seguir viviendo, desbes morir; así como te presentas sólo acabarás auto\-destruyéndote, aniquilándo a tu entorno y a ti mismo. La transformación es tu única solución”.  
   
 Preso de la resignación, opté por el silencio y cerré los ojos, entregándome. Al abrirlos, era un día calmo y nublado; estaba completamente sólo. Con espasmos en mi cuerpo aún sumido en la angustia, aquel desgarramiento fundamental, fui devuelto a mi lugar más propio, mi interioridad, y fue de allí que pudo surgir algo real y verdadero en mí. Allí nació este poemario que me salvó la vida, vida que se hundía en las profundidades del fuego del Hades, antes de encontrar el agua en el fluir de las letras; letras que dieron reposo y cobijo a mi alma cansada y andariega, y apaciguaron el incendio de mi corazón; corazón que cerca de convertirse en piedra odiosa fue pulverizado por un rayo de amor.  
   
@@ -522,6 +534,8 @@ Las letras, la literatura, en fin, el arte en su maravillosa e incompleta luz so
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## No tiene titulo - por Gon
 
    lugar donde el tiempo no existe, 
@@ -581,7 +595,7 @@ Se obsesiona con ese momento, con ese lugar, que permitiría a cualquiera vivir 
 [...]  
   
 Bruno si yo pudiera solamente vivir en esos momentos, o como cuando estoy tocando y también el tiempo cambia… Te das cuenta de lo que podría pasar en un minuto y medio… Entonces un hombre, no solamente yo sino ésa y tú y todos los muchachos, podrían vivir cientos de años, si encontráramos la manera podríamos vivir mil veces más de lo que estamos viviendo por culpa de los relojes, de esa manía de minutos y de pasado mañana…”  
-- El Perseguidor, Julio Cortázar.  
+\- El Perseguidor, Julio Cortázar.  
   
 Lo leí hace mucho, ya no me acuerdo de la trama. Pero disfruté esa imagen.   
   
@@ -647,6 +661,8 @@ Interesante, la pregunta eterna del hombre por su existencia y el paso del tiemp
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Nosotras y el mundo - por Nicolás Rosa
 
 En las casas de Argentina, las puertas suelen tener una altura exacta de dos metros, y sus picaportes, suelen estar ubicado del lado izquierdo de estas. El mouse de la computadora suele estar a la derecha del teclado. Las sillas (sin contar sus respaldos) suelen estar más bajas que las mesas. Esto es así no porque sea lo mejor en sí mismo. No proviene de un orden natural que todas las puertas midan dos metros, sino que resulta que esto es lo más adecuado para el argentino. El argentino suele medir menos de dos metros, ser diestro y comer en una mesa que está más alta que la silla (sin contar su respaldo). Estas características no son intrínsecas al argentino, pero sí lo son a su cuerpo, y el cuerpo, a su vez, sí es intrínseco al argentino. No, que A corresponda a B y B a C no significa que debamos asumir una relación directa entre A y C. No podemos perder los más mínimos matices porque son estos los que hacen a la verdad. No se puede omitir a B. La argentina está hecha por el argentino para el argentino, porque este suele dominar sobre aquella, pero a la vez es dominado por su cuerpo, al que no puede someter, y por eso, en su lugar, somete a la naturaleza con el fin de complacerlo. Si el argentino tuviese sus ojos en las rodillas, tal vez las televisiones no estarían encima de mesas o colgadas tan alto en las paredes. Si los argentinos fuesen en su mayoría zurdos tal vez ya se habrían preocupado más por tintas que no manchen sus manos.  
@@ -693,6 +709,8 @@ Terriiiible, me encantó. “No tenemos lengua, sólo corazón” memorable. Me 
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Paz en la Granja - por Migor Beltsmaun
 
 Un emprendedor anarcocapitalista estaba cansado del gobierno de su país. Había, en el poder, un líder autoritario y severo, tremendamente corrupto. Pero él era un visionario y tenía un plan. Decidió poner una startup, y comenzó su labor dedicándose, fervorosamente, al armado de la marca.  
@@ -707,7 +725,7 @@ Respecto de sus empleados, cumplió las promesas con creces. No sólo triplicó 
   
 Por supuesto que generaba trabajo. Es más, generaba casi todo el trabajo en su nación. Como empresario consciente y socialmente responsable, y con la espalda económica que tenía después de haberse librado de las presiones fiscales que implicaba la existencia del Estado, ofrecía empleo a absolutamente cualquier persona que se lo pidiese.  
   
-El caso fue excepcional. Una vez más, se evidenciaban las bondades del Laissez-Faire.   
+El caso fue excepcional. Una vez más, se evidenciaban las bondades del Laissez\-Faire.   
   
 La empresa se llamaba Cuba, y el empresario, Fidel.
 
@@ -734,6 +752,8 @@ Este cuento es una gran alegoría de la revolución cubana en términos de empre
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Pesadilla - por ReaderSofía
 
 Mira frente al espejo su nuevo corte de pelo, rapado a los costados y un poco más largo arriba. Sus rulos le caen sobre la frente y un poco de pelo le acaricia el bigote. No se mira frente al espejo. Una pared de vidrio. Está encerrada en un cubo de vidrio. Su mamá, su mejor amiga y el chico con el que salió la semana pasada, del otro lado. Les pide que le abran la puerta. Una sombra los empieza a tragar como el fundido a negro en una película. Las paredes se mueven hacia ella, despacio.  
@@ -744,7 +764,7 @@ el texto me hizo acordar a que justo hace unos días tuve una conversación con 
 
 ### TomassonRG comentó:
 
-Me gustó. Tiene un aire lynchiano por lo oscuro y enigmático del sueño. Me gustó que trabaja con lo que en narratología se denomina el narrador-cámara. Las acciones se van sucediendo como si de una película se tratase. De hecho no me parece casualidad que aluda al fundido a negro de una película. No creo que haya sido una coincidencia, creería que es una asociación hecha adrede. Me gusta el final, me parece una situación espantosa y desesperante, como una de las que se ven en las películas de El juego de miedo
+Me gustó. Tiene un aire lynchiano por lo oscuro y enigmático del sueño. Me gustó que trabaja con lo que en narratología se denomina el narrador\-cámara. Las acciones se van sucediendo como si de una película se tratase. De hecho no me parece casualidad que aluda al fundido a negro de una película. No creo que haya sido una coincidencia, creería que es una asociación hecha adrede. Me gusta el final, me parece una situación espantosa y desesperante, como una de las que se ven en las películas de El juego de miedo
 
 ### Quien? comentó:
 
@@ -770,6 +790,8 @@ en lo que más me hace pensar este texto es cómo la aceptación y las opiniones
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Ritmo al Universo - por Clara
 
 Por qué no dejamos que una canción  
@@ -862,6 +884,8 @@ Muy bueno Clara, muy sentido el poema y me gusta que sea un poema poema y no un 
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Rondapreguntas - por Manoni
 
 Rondapreguntas  
@@ -890,7 +914,7 @@ Mariano Herraiz, se fue Septiembre de 2023.
 
 ### Migor Beltsmaun comentó:
 
-- Quiénes están afuera?  
+\- Quiénes están afuera?  
   
 Somos bichos de comunidades chicas. Cuando la sociedad es grande, simulamos comunidades chicas.  
   
@@ -898,7 +922,7 @@ Eso son la iglesia evangélica del barrio, la peña de Boca, el grupo de memes e
   
 Para que haya una Ronda, tiene que haber gente afuera. Pero podemos estar en muchas rondas. Una ronda única es una secta. Muchas rondas conectadas son un pueblo.   
   
-- Murió la intelectualidad?  
+\- Murió la intelectualidad?  
   
 Vamos a rescatarla.  
   
@@ -908,7 +932,7 @@ Cuando dejamos de escuchar la idea del de al lado, no aparecen ideas nuevas.
   
 La intelectualidad que sirve, la que busca puntos débiles de Goliat y construye alternativas, renacerá con la Ronda.  
   
-- Cuando empezamos a tener pánico digital?  
+\- Cuando empezamos a tener pánico digital?  
   
 Aunque no lo sepamos, nos comparamos. Nos importa lo que piensan de nosotros.  
   
@@ -918,7 +942,7 @@ Somos bichos de comunidades chicas. Cuando el feed es la comunidad, somos los m�
   
 Y da pánico digital.  
   
-- Lo que no podemos manifestar hubiera salvado al mundo?  
+\- Lo que no podemos manifestar hubiera salvado al mundo?  
   
 Sí.  
   
@@ -964,6 +988,8 @@ Iba a poner que me parece fundamental hacerse cargo de la escritura y que ésta,
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## Sobre cómo el indie rock devino en música para salas de espera - por TomassonRG
 
 Hubo un momento en el que el indie rock era una género que uno escuchaba, siendo joven, para navegar el conflicto adolescente. Yo crecí escuchando los primeros discos de Arctic Monkeys y The Strokes. Fueron la banda sonora de mi adolescencia y mi joven adultez. Todavía recuerdo los escalofríos que sentí cuando escuché por primera vez en mi vida la intro de I Bet You Look Good on the Dancefloor, la bomba sonora con la que los pibes de Sheffield, liderados por Alex Turner, se presentaron al mundo.  
@@ -988,7 +1014,7 @@ Me comentaba de su intención de salir del indie de una vez por todas, y a pesar
 Ya está listo para que su tercer disco sea uno MainStream de rock, y esto coincide con un momento de su carrera en el que ya no tiene que valerse de su gran habilidad para el manejo del sampling y la fantasía en el diseño sonoro, sino que ya tiene un bandón consolidado que mete grandes tomas en vivo sin nada que envidiarle a las bandas que grababan en ese mismo estudio en la era del audio destructivo, la cinta y la ausencia de computadoras en el proceso.  
 El primer dilema del Indie es su trampa: gran mayoría de los artistas que utilizan el género para comunicar a sus seguidores que se identifican con él, en realidad son falsos independientes, quienes, si bien lo han sido en una etapa, utilizan la permanencia en esta para romanizarla, de la misma manera que lo hace Fito Paez con su historia. A favor de ambos casos, hay para decir que interesan las cosas que tienen que pasar las bandas para pasar del indie al mainstream, y también interesa lo que pasó con Paez de la Trova hasta Charly y después. La paradoja de tener que irse de ahí.  
 El problema es cierta falta de honestidad artística en donde el gran diablo es el marketing, asegurándote una escena si te mantenés indie, y garcándote con ese techo de Niceto o Camping, Tangente o lugares de 500 personas como la meca de los Indies en Buenos Aires, quitándote el paradigma de abrir de esa tribu tu espectro de comunicación como artista, al interior, a los festivales, a las plazas, a toda transmisión en vivo que te arriesgue a compartir cartel con gente que te come como un Paty porque viene sudando para ser mainstream, porque no tiene miedo de ser mainstream.   
-Estamos también ante el indie-pose, en donde se advierte un abandono de ideas musicales en pos de otras búsquedas estéticas para el proyecto, en las que la música es utilería, casi como en el peor teatro musical.  
+Estamos también ante el indie\-pose, en donde se advierte un abandono de ideas musicales en pos de otras búsquedas estéticas para el proyecto, en las que la música es utilería, casi como en el peor teatro musical.  
 Estoy de acuerdo con que el Zar y Bandalos se acerquen esteticamente, Sujatovich tiene una propuesta que se diferencia de las anteriores como se asemejaba la de Fito y la de Ratones Paranoicos en los 90. Bueno, quizas un poco menos. Voy a escuchar Maria Codino, que no la conozco.  
 Con la cuestion de los machismos en la escena de los 90s me acorde de estos documentales del fracaso del woodstock republicano en la base militar...todo aquello parece haber desembocado en eso. No obstante el vomito de testosterona del ñu metal es fascinante, dejo elementos para la catarsis y para la parodia.  
 Sin embargo, hay expresiones del indie posteriores a Mac DeMarco, que nunca nos deja de robar una sonrisa, pero ya es de una generación que ya no le da la edad para el Osde Neo, que comunican gran apertura, y amor y admiración por una musicalidad propia del mainstream. Black Midi, Unknown Mortal Orchestra, BadBadnotGood, y otros proyectos quizás alejados del rock rebelde, creo…no tienen tanto que ver con las salas de espera. O al menos de salas de espera mas copadas.  
@@ -1008,6 +1034,8 @@ Hola, TomassonRG! Cómo andás? Resulta muy interesante para mí la preocupació
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## cucaracha - por Nimiedades
 
 estoy esperando el subte  
@@ -1106,18 +1134,20 @@ Primero que nada muy buen poema (que probablemente no sea poesía, aunque seguro
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## cuál es el cuerpo de una máquina - por tin.
 
 ¿cuáles son, entonces, los combates que se libran en cada máquina?  ¿qué entidad asubjetiva insiste entre pulso y pulso del clock? ¿qué inmenso campo de multiplicidades subyace entre líneas de código?  
 Lxs hackers saben de la riqueza de ese mundo telúrico, y juegan a subvertir los signos que la máquina encarna. Se valen de un fallido para articular su deseo con el de la máquina. Para desplegar esa diferencia que dentro y contra del script no deja de repetirse.  
   
-- precisamos astillerxs  
-¡Mienten! Pretenden que el lenguaje existe allá en el Cielo, y que cada quien porta tan solo una precaria réplica de ese perfecto signo. Quienes recorremos el terreno del lenguaje todos los días sabemos, hablamos. Palabras palabras palabras, no paran. De a ratos parecen hacerlo pero tan sólo son inaudibles. Entre lo que digo y lo que dice y lo que decimos y lo que dicen hay un abismo, y también un puente. O más bien, hay un puente-abismo, que genera extremos, y en ellos reconocemos un hablar propio y uno ajeno. Los lingüistas recorren el puente y siguen su dirección sin notar otra posibilidad: pararse en el trayecto y contemplar el paisaje que se abre a un costado. Por el abismo pasa un río, que atraviesa al puente y a otros puentes, y su destino es sólo cognoscible si se lo supone entero. Sigamos al río, armémonos un barco que pueda navegar sus aguas y encontremos en qué mar nos quiere hacer naufragar.  
+\- precisamos astillerxs  
+¡Mienten! Pretenden que el lenguaje existe allá en el Cielo, y que cada quien porta tan solo una precaria réplica de ese perfecto signo. Quienes recorremos el terreno del lenguaje todos los días sabemos, hablamos. Palabras palabras palabras, no paran. De a ratos parecen hacerlo pero tan sólo son inaudibles. Entre lo que digo y lo que dice y lo que decimos y lo que dicen hay un abismo, y también un puente. O más bien, hay un puente\-abismo, que genera extremos, y en ellos reconocemos un hablar propio y uno ajeno. Los lingüistas recorren el puente y siguen su dirección sin notar otra posibilidad: pararse en el trayecto y contemplar el paisaje que se abre a un costado. Por el abismo pasa un río, que atraviesa al puente y a otros puentes, y su destino es sólo cognoscible si se lo supone entero. Sigamos al río, armémonos un barco que pueda navegar sus aguas y encontremos en qué mar nos quiere hacer naufragar.  
    
   
-- origen y estilo de las especies  
+\- origen y estilo de las especies  
   
-Cuando hablo de signo no se me entienda de modo semiológico. Puentes-abismos hay por todos lados. La evolución de las especies, por ejemplo. Ya decirle evolución inmediatamente nos ubica en la angosta línea del tiempo, cuando de lo que estamos hablando es de un discurrir de los modos de vida, de una batalla campal entre formas de organización de la materia, tan ancha que rebalsa nuestra comprensión. Veamos entonces este discurrir, ¿de qué consiste? Organismos, mecanismos, máquinas orgánicas ensambladas en distintos niveles. Energía, materia e información fluyendo por estos mecanismos, siguiendo una mecánica de los fluidos y armando una rítmica de los flujos. Sólo un sujeto obsesionado con detenerlo todo podría pretender estudiar estos mecanismos aislados del combate del que surgieron, que dan y en el que van a morir. Estudiar los beats de este ritmo, en vez de escuchar la canción ¡y ni hablar de bailarla! Cada una de estas notas está en desequilibrio, cayendo hacia la próxima, llamándola. Cada uno de estos mecanismos está inclinado hacia el futuro (no lineal) en un gesto de reverencia, el único digno: la acción.   
+Cuando hablo de signo no se me entienda de modo semiológico. Puentes\-abismos hay por todos lados. La evolución de las especies, por ejemplo. Ya decirle evolución inmediatamente nos ubica en la angosta línea del tiempo, cuando de lo que estamos hablando es de un discurrir de los modos de vida, de una batalla campal entre formas de organización de la materia, tan ancha que rebalsa nuestra comprensión. Veamos entonces este discurrir, ¿de qué consiste? Organismos, mecanismos, máquinas orgánicas ensambladas en distintos niveles. Energía, materia e información fluyendo por estos mecanismos, siguiendo una mecánica de los fluidos y armando una rítmica de los flujos. Sólo un sujeto obsesionado con detenerlo todo podría pretender estudiar estos mecanismos aislados del combate del que surgieron, que dan y en el que van a morir. Estudiar los beats de este ritmo, en vez de escuchar la canción ¡y ni hablar de bailarla! Cada una de estas notas está en desequilibrio, cayendo hacia la próxima, llamándola. Cada uno de estos mecanismos está inclinado hacia el futuro (no lineal) en un gesto de reverencia, el único digno: la acción.   
 Cualquier libro de anatomía redunda en esta obsesión estatista. Ignoran las inclinaciones del cuerpo. El mismo éstasis (contrario a éxtasis) repiten los ingenieros del software, hablando sin cesar de funciones y objetos para ignorar la pregunta que insiste desde el principio: ¿cuál es el cuerpo de la máquina?  
 
 
@@ -1129,7 +1159,7 @@ Por otra parte tenemos el paradigma de programación orientada a datos (Data Ori
 
 ### Agustin Iribarne comentó:
 
-Este texto me hizo reflexionar sobre las relaciones que hay entre las máquinas y los cuerpos, y en qué sentido una máquina puede parecérsele a un cuerpo humano. Si bien es muy poético y metafórico, lo cual hace más compleja la comprensión lineal, creo que abre varias puertas con respecto al lenguaje que ordena un sistema, y despliega otros mundos posibles en relación a la cibernética, los ciborgs, y los seres humanos, que en esta era comienzan a implantarse chips y cada vez se linkean más con las máquinas. Me resultan muy interesantes las descripciones y las propuestas de otros modos de vida. Sin entender demasiado de informática, me inspira a integrar la tecnología a mi vida, y a tender nuevos puentes-abismos hacia un futuro que siempre se presenta incalculable e indeterminado. Quizás los nuevos horizontes que nos aguardan sean más caóticos de lo que nos podíamos imaginar. Bienvenidos sean. Solo la novedad puede traer algo que tenga un retazo de verdad. 
+Este texto me hizo reflexionar sobre las relaciones que hay entre las máquinas y los cuerpos, y en qué sentido una máquina puede parecérsele a un cuerpo humano. Si bien es muy poético y metafórico, lo cual hace más compleja la comprensión lineal, creo que abre varias puertas con respecto al lenguaje que ordena un sistema, y despliega otros mundos posibles en relación a la cibernética, los ciborgs, y los seres humanos, que en esta era comienzan a implantarse chips y cada vez se linkean más con las máquinas. Me resultan muy interesantes las descripciones y las propuestas de otros modos de vida. Sin entender demasiado de informática, me inspira a integrar la tecnología a mi vida, y a tender nuevos puentes\-abismos hacia un futuro que siempre se presenta incalculable e indeterminado. Quizás los nuevos horizontes que nos aguardan sean más caóticos de lo que nos podíamos imaginar. Bienvenidos sean. Solo la novedad puede traer algo que tenga un retazo de verdad. 
 
 ### Umi comentó:
 
@@ -1142,6 +1172,8 @@ Desde un comienzo me dio la impresión de leerte como una metáfora, desde “lo
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
 ## mi primer amor - por Quien?
 
 Como todos los principios arrancó lindo.  
@@ -1151,7 +1183,7 @@ Ahora lo único que queda son dejos de resentimiento. Aunque no haya sido person
 En fin,  
 así fue mi primer amor.  
 Mi padre.  
--	¿O ese fue mi ex?  
+\-	¿O ese fue mi ex?  
 
 
 ### Nimiedades comentó:
@@ -1183,3 +1215,6 @@ Ahora bien, todo esto fue hasta leer el último par de líneas que hacen al suje
 <a href="index.html">
 <img src="logo.png" alt="Logo" width="119" height="107">
 </a>
+
+
+​
