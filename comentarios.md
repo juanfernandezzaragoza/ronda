@@ -52,7 +52,9 @@ Es como esa sensación de perseverancia que te deja perder a alguien de tu famil
 
 Es interesante como, ante la muerte de un ser querido, el cuerpo pasa a convertirse en una máquina que debe funcionar en modo automático para sostener y recuperar algo que lo vincule con la persona perdida, en este caso la abuela. La pérdida de un ser querido se compone con la imagen "todo este espacio". Hay un vacío que solo se puede llenar con los deseos para compartir. Aunque el compartir se vuelve imposible, el yo poético insiste en conservar a su abuela en los objetos que quedan de ella, su cámara, por ejemplo. 
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Alimento al monstruo - por César Zorba
 
 Cuando estoy solo alimento al monstruo, para que no me coma. Él tiene un hambre brutal. Sus entrañas son una caverna bestial. Su estómago ruge cuando me ve llegar.  
@@ -93,7 +95,9 @@ y me pregunto, qué potencia crece en este texto? quién gana? cuáles son las p
   
 PD: un detalle, cuando decís "No hablé de nadie con el monstruo." te referís a "no hablé del monstruo con nadie"? lo interpreté como un error nomás pero capaz era un juego jaja
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Breve traducción sobre estar "en una" - por Umi
 
 Breve traducción sobre estar "en una"  
@@ -225,7 +229,9 @@ desanuda
 
 Este poema me guió, directamente, a esta idea: el desamor es el atardecer del otro y de los momentos compartidos, hasta que amanece de nuevo. El poema es la experiencia, justamente, del amanecer del vacío frente a la ausencia. Los imaginarios de "nuevo comienzo" y "nacimiento" desinflan su carga positiva. Solo queda el dolor de levantarse todas las mañanas sabiendo que mientras el yo lírico desea ser al lado del ser amado, solo le queda ser un sujeto productivo sobreviviente. Porque lo único que queda durante el desamor es el sosten del crecimiento personal, pero en soledad. 
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Cualquier camino con corazón - por Marcos Matías
 
 “... nada más puede intentarse que establecer el principio y la dirección de un camino infinitamente largo. Pretender cualquier totalización sistemática y definitiva sería, al menos, un autoengaño”.  
@@ -335,7 +341,13 @@ Nunca la grabé.
 Si mi camino hubiera hecho una parada en UCLA, habría escrito algo distinto?  
 
 
-# Ronda de Escritura
+### Nicolás Rosa comentó:
+
+Buenas! Te comento que he leído las enseñanzas de Don Juan (si bien hace mucho tiempo) y me pareció un libro maravilloso pero que no podría decir que compartimos esa afición ya que evidentemente es una obra que llega a vos de una forma especial. Comparto completamente tus reflexiones que se abren con la cita de Simmel acerca de la inconclusividad de todo recorrido (considerando conclusión en sentido de fin pero también de totalidad significativa en forma de unidad). Ver a Simmel allí me dispara de inmediato esta relación que de teje acerca de formas de pensamiento no-occidentales (si nos ponemos rigurosos, más acertado sería decir no-platónicas, en su sentido de negación pero también de de desconocimiento en el caso de Las Enseñanzas de Don Juan). Es conocida la crítica de los intelectuales románticos de la preguerra (Simmel, Weber, Mann) a los sistemas de pensamiento basados en la razón occidental están limitados por sus propios principios, sobre los que Alemania siempre se ha colocado en antípodas del resto de Europa, privilegiando formas de conocimiento que escapan a esta lógica fundamentados en un conocimiento más cercano a la cultura que a la civilización: aquel que se asientos sobre la intuición. Y es que en ese sentido cobra vida la frase de que la intuición nunca falla. La intuición nunca puede fallar porque en sí misma es un sentimiento que no puede ni busca ser validado por medio de las categorías lógicas que utiliza el razonamiento heredado de los griegos clásicos. Sí, puede no corresponderse a la realidad aquello que se intuye, pero no hay duda de que, de un modo que ciertamente evoca a Descartes acerca de otro elemento humano menos agraciado que el sentimiento y el cuerpo, la sensación es verdadera por la sola consciencia de ella. Esta puede sonar a una idea peligrosa, ciertamente lo es, pero es allí donde incluso lo no-racional supone también una serie de reglas que en Las enseñanzas regulan incluso el uso de la Ayahuasca como un consumo socialmente aceptado hasta cierto punto del recorrido. Tenemos tan incorporadas categorías netamente occidentales que no podemos evitar y con las que fatalmente entendemos el mundo por ello estás cosas se nos escapan, la idea de que Latinoamérica, Asia y aquella vieja pre-alemania pudieran vincularse no porque tengan en común algo que el resto de Europa no, sino porque hay algo que no tienen, que por suerte, hasta la globalización, les faltaba: un Platón. Carlos Castaneda es alguien que conoce bien de esta división. Conoce distintas comunidades donde no rige aquel estéril espíritu socrático, y a su vez ha escrito desde el espacio cúspide del dominio de la mers razón y la civilización: Estados Unidos. El propio nombre con el que en tu texto lo nombrás ya señala esa desterritorialización de la propia lengua, el gesto no solo de escribir en inglés para un público local sino de no poder escribir ni siquiera el propio nombre correctamente porque las máquinas de escribir estadounidenses carecen de la letra ñ.
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Cuerpo - por Ian Mihura
 
 Cuerpo mío,   
@@ -383,7 +395,9 @@ El cierre del poema, con la idea de entregar la "antorcha" al "desconocido del m
 
 Un poema de amor al cuerpo. El yo lírico reconoce la finitud de su objeto de deseo, sin embargo, confía en la capacidad del arte como vestigio, huella, para conservar la memoria de los logros del cuerpo. Quizás el principal de ellos sea llevar el ritmo de la vida del yo poético. La personificación del cuerpo y su construcción como interlocutor le permite al yo lírico reconocer y enfrentarse con su mortalidad, pero también con su motor. El cuerpo no es un recipiente, sino un guerrero, un compañero, un protector. 
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Invocación  - por Laguna
 
 Deslinde a la várice  
@@ -443,7 +457,21 @@ Un poema esotérico sobre la creación, de palabras complejas que tienen un timb
 
 Según mi criterio, este poema, lleno de imágenes religiosas, teñidas de sangre, puñal y muerte, es una invocación al silencio que sobreviene luego de haber herido al ángel que miente y promete otra vida. En el río de sangre hay un rastro de eso que ya nunca será del mismo modo: luego de batir las alas, el ángel se aleja herido, para ya nunca regresar al mundo. Debe olvidar quién lo hirió, porque al ser ángel, debe perdonar y volver a la gracia divina. Pero el mundo de los seres humanos se ve afectado por esta escena: una lucha contra la falsa divinidad que busca imponerse en la tierra ha acontecido, y el vencedor resulta el sujeto que ha cargado el puñal, y por propia decisión ha resistido y atacado. El límite se ha invocado con claridad: hasta aquí la tierra, más allá los cielos. Nadie osará sobrevolar mi terruño. No sin mi consentimiento. 
 
-# Ronda de Escritura
+### tin. comentó:
+
+me encantó! no sé mucho de poesía como para hacer un análisis pero te voy a decir las imágenes y recursos que me generaron goce estético a mí.  
+  
+- el conjunto de los elementos santo, ángel de la guarda, vena, puñal  
+- las aliteraciones como desgracia-desagradecida, decible-decide  
+- el momento donde el santo le dicta al ángel. se me vino una imagen trastocadamente burocrática, onda policías en una escena del crimen. en el caso de los policías esa imagen ya suele tener un grado de trastoque: una escena tan sagrada como la muerte, recubierta de la actitud más banal e indiferente que hay. y en el caso de estos personajes celestiales esos contrastes se acentúan todavía más.   
+- "deslinde a la várice" me pareció de esas fórmulas que las tenés que pensar un ratito para que entren, y cuando llegan tienen una sutileza fuertísima.  
+  
+Muchas gracias por este texto <3  
+
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## La muerte: la gran transformación - por Agustin Iribarne
 
 Sobre ira, frustración, angustia y un dolor insoportable sembré una semilla de soledad, y germinó así la poesía triste en mí, como un catalizador, como el veneno que es remedio momentáneo: así operó en mí con sus garras de terciopelo que acariciaron mi alma entonces deshecha. Desvergonzada, sumida en traiciones y despecho, se fue pudriendo como agua estancada, como fruto maduro que rodó por la colina hasta las orillas del río negro. Allí mismo creció la flor del olvido, tan majestuosa como mortífera, que paralizaba a las abejas encantadas, obnubiladas ante ese destello sombrío. Sobre los cadáveres de estos fútiles insectos se desarrollaron –nuevos- parásitos inéditos, irreconocibles hasta por los biólogos más eruditos, mas sabios y conocedores.  
@@ -487,7 +515,13 @@ Lo primero que se me vino a la cabeza en cuanto inicie a leerte fue una canción
 
 Agustin. Que impreganante y desafiante fue para mi leerte sin oscurecerme un poco. Concuerdo con como el poemario salvo tu vida. La escritura vino a mi de la misma forma, solo que hoy dia no me siento tan valiente. El nivel de detalle me ayudo a darle rienda suelta a mi imaginación, y no tengo palabras para poder describir el viaje hice en tu escritura. Me recordó uno de mis artistas favoritos, Avogado6. Un artistas anónimo japonés. Espero puedas encontrarte en sus imágenes como yo. 
 
-# Ronda de Escritura
+### ReaderSofía comentó:
+
+Las letras, la literatura, en fin, el arte en su maravillosa e incompleta luz son nuestro amparo. Además es interesante el juego entre el texto y la pieza poética final. ¿Cuál es el texto en el que debemos concentrarnos ¿La experiencia que dio origen a ese poema? ¿El poema? O la misma imagen de la larva arrastrándose por el polvo, que condensa la experiencia narrada en el texto narrativo. En definitiva, también resulta interesante el diálogo, el juego quizás, entre narración y poesía. En resumen, dos recursos para componer una misma experiencia, diferentes, pero igual de potentes en la construcción de la lucha contra la adversidad. 
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## No tiene titulo - por Gon
 
    lugar donde el tiempo no existe, 
@@ -610,7 +644,9 @@ El poema se abre con ese encadenamiento caótico que da la sensación de algo qu
 Interesante, la pregunta eterna del hombre por su existencia y el paso del tiempo… Pero ¿cuál es tu agregado? Creo que a veces, menos es más y la potencia de las palabras debe ser aprovechada y que no por ponerlas todas juntas, consecutivamente, se diluyan. Es decir, Prestaría más atención a qué forma te propone el contenido, y de qué manera podés evidenciar más la fuerza de las palabras. Es muy hermoso el final, me encantó. Pero (igual esto es re personal) cuando más arriba preguntaba cuál era tu agregado, me refería a que esta es una pregunta universal de la poesía, del arte, de la filosofía. Dentro del texto, ¿qué es lo que da cuenta de la época en que se lo escribe? ¿Es consciente el no poner ningún elemento de la cotidianidad? A veces siento que palabras tan grandes, conceptos tan abstractos cobran fuerza a base del acompañamiento de otras palabras que le den esa jerarquía. Eso, mecharía más. Y me concentraría en la condensación de lo que decís. Pero ahora sí saliendo del análisis más formal. Me gustó que la pregunta se volcara por la escritura, y que se mencionara la magia y el silencio al final, me hizo pensar que era el momento en que quien escribe, comenzaba a escribir el texto que acababa de leer.   
 
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Nosotras y el mundo - por Nicolás Rosa
 
 En las casas de Argentina, las puertas suelen tener una altura exacta de dos metros, y sus picaportes, suelen estar ubicado del lado izquierdo de estas. El mouse de la computadora suele estar a la derecha del teclado. Las sillas (sin contar sus respaldos) suelen estar más bajas que las mesas. Esto es así no porque sea lo mejor en sí mismo. No proviene de un orden natural que todas las puertas midan dos metros, sino que resulta que esto es lo más adecuado para el argentino. El argentino suele medir menos de dos metros, ser diestro y comer en una mesa que está más alta que la silla (sin contar su respaldo). Estas características no son intrínsecas al argentino, pero sí lo son a su cuerpo, y el cuerpo, a su vez, sí es intrínseco al argentino. No, que A corresponda a B y B a C no significa que debamos asumir una relación directa entre A y C. No podemos perder los más mínimos matices porque son estos los que hacen a la verdad. No se puede omitir a B. La argentina está hecha por el argentino para el argentino, porque este suele dominar sobre aquella, pero a la vez es dominado por su cuerpo, al que no puede someter, y por eso, en su lugar, somete a la naturaleza con el fin de complacerlo. Si el argentino tuviese sus ojos en las rodillas, tal vez las televisiones no estarían encima de mesas o colgadas tan alto en las paredes. Si los argentinos fuesen en su mayoría zurdos tal vez ya se habrían preocupado más por tintas que no manchen sus manos.  
@@ -650,7 +686,13 @@ Mil ojos apurados miran menos que una abeja compañera.
 Cuando las abejas defienden su red, hasta la ciudad florece.  
 
 
-# Ronda de Escritura
+### Laguna comentó:
+
+Terriiiible, me encantó. “No tenemos lengua, sólo corazón” memorable. Me gusta que exceda el ámbito del lenguaje universal de los humanos que tanto nos gusta pensar como símbolo de la conexión con el entorno y la naturaleza sólo porque es involuntario, como el llanto, y por eso, aparentemente esencial. En la búsqueda eterna por la forma correcta del mundo, demolemos su original. Pensé en todas las películas que vi sobre abejas y cómo estas son siempre símbolo de alarma, de dulzura muda, constante trabajadoras para seguir haciendo funcionar una humanidad que no funciona si ellas y a la vez las olvida. Así como olvida el llanto también… Creo que si podemos dejar de ver algo tan fundamental, es porque también podemos dejar de vernos a nosotros mismos verdaderamente como parte de un organismo mayor. Es nuestro flagelo, y lo reproducimos en todas las escalas imaginables e inimaginables. En lo que se dice y lo que se deja de decir. 
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Paz en la Granja - por Migor Beltsmaun
 
 Un emprendedor anarcocapitalista estaba cansado del gobierno de su país. Había, en el poder, un líder autoritario y severo, tremendamente corrupto. Pero él era un visionario y tenía un plan. Decidió poner una startup, y comenzó su labor dedicándose, fervorosamente, al armado de la marca.  
@@ -689,7 +731,9 @@ Buena resemantización. Siento que es un texto que leería en un panfleto creado
 
 Este cuento es una gran alegoría de la revolución cubana en términos de empresa. Es interesante cómo está planteado desde su propia mira, cómo juega con los términos en inglés sobre el desarrollo de la empresa, y cómo critica el rol del estado dentro del sistema capitalista. Considero que está muy bien logrado, que las comparaciones son muy atinadas, y que da mucho que pensar sobre el sistema en que vivimos, y sobre las posibilidades de vivir de otra manera. Me gusta el final, cómo resignifica todo el cuento, e invita a leerlo de nuevo, con otra mirada. El título, en consonancia con “Rebelión en la Granja” de Orwell, presenta un sentimiento de paz una vez que esa granja o territorio ha sido conquistada y que la administración ha cambiado de manos. Ojalá esa paz pueda extenderse a la gran granja que es la tierra, algún día. Luchamos para lograr esa paz, y aguardamos ese instante redentor. 
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Pesadilla - por ReaderSofía
 
 Mira frente al espejo su nuevo corte de pelo, rapado a los costados y un poco más largo arriba. Sus rulos le caen sobre la frente y un poco de pelo le acaricia el bigote. No se mira frente al espejo. Una pared de vidrio. Está encerrada en un cubo de vidrio. Su mamá, su mejor amiga y el chico con el que salió la semana pasada, del otro lado. Les pide que le abran la puerta. Una sombra los empieza a tragar como el fundido a negro en una película. Las paredes se mueven hacia ella, despacio.  
@@ -723,7 +767,9 @@ No sé si es un valor, pero creo en lo genuino.
 
 en lo que más me hace pensar este texto es cómo la aceptación y las opiniones de los demás me han bloqueado y me causado claustrofobia a lo largo de mi vida. Creo que muchas personas (al menos muchas mujeres amigas sé que han vivido experiencias similares, especialmente en la adolescencia) llegamos a un punto en el que no tenemos ni idea de cuáles son nuestros gustos, nuestras preferencias estéticas o incluso cómo nos vemos a nosotrxs mismxs. Mi visión de mí misma se deformó y trastornó tanto que a veces siento que la perdí para siempre, y simplemente me muevo por la vida tratando de encontrar la opinión de alguien sobre mí misma que sea más o menos asequible. Y apropiármela, y así poder vivir algunos años más hasta que encuentre una que se me acerque más, aún sin saber cuál es la meta a la que me esfuerzo tanto por llegar, nos la roban
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Ritmo al Universo - por Clara
 
 Por qué no dejamos que una canción  
@@ -813,7 +859,9 @@ El poema tiene un tinte barroco, estilo que no es de mis preferidos. Los constan
 
 Muy bueno Clara, muy sentido el poema y me gusta que sea un poema poema y no un poema de internet de esos que se basan en apretar enter en intervalos regulares. Igual esos no están mal pero bueno, parece que salen más automáticos y hasta yo he escrito uno que otro así rápido y en apariencia bueno. Creo que la anterior es una concepción del arte que le pide que se tome cierto trabajo para realizarse, pero ¿no es también profundo el arte que sale así de la nada, espontáneo, imprevisto, en cualquier momento y lugar? Obvio que sí. Como improvisar, un poema o una respuesta. Cuestión, será cuestión de encontrar la manera de que de alguna forma, cualquiera, se le pueda dar o sacar ritmo al Universo cuando éste no lo presente solo. Y si no lo presenta, ¿es un problema del Universo o un problema de mis ojos? Seguro es lo segundo. ¿Es un problema? Capaz el Universo se esconde un rato para ver qué hacemos, a ver si logramos encontrar ese ritmo dentro de nosotros.
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Rondapreguntas - por Manoni
 
 Rondapreguntas  
@@ -909,7 +957,13 @@ Querrías salvar al mundo?
 Porque yo siempre quise salvar al mundo?  
 
 
-# Ronda de Escritura
+### Laguna comentó:
+
+Iba a poner que me parece fundamental hacerse cargo de la escritura y que ésta, en esta instancia debe estar direccionada al lector. Es decir, pensé en que eran un montón de preguntas interesantes pero que no llegaba a encontrar un hilo conductor. Después cuando hablaste de este contexto en particular sentí verdaderamente que estaba yo dentro del texto que escribiste, que estabas apelando directamente a nosotros, pocas veces pasa de leer algo confeccionado especialmente para la ocasión, me fue muy grato. Me pareció que el texto jugaba con lo indecible y de lo poderoso que puede llegar a ser una voz que eleva hacia arriba su tono en son de la pregunta constantemente, como un canto de picos de olas donde hay que surfear a través de la contestación que se le intenta dar a cada una de ellas. Igual quería preguntar ¿Es intencionado el no abrir el signo de pregunta? ¿Es parte del efecto? Sea como fuere, no podía evitar en la mutabilidad e inmutabilidad del signo lingüístico siendo esta forma de preguntar una aceptada por las redes sociales y no en instancias formales, creo que en ese sentido se reforzaba el sentido del texto. ¿Es algo que hay que curar? ¿Hay algo que curar? ¿por qué haríamos esto de pasarnos textos si no es para hablarnos a través de un medio diferente? Creo que al no dar ninguna respuesta refuerza la última pregunta. Lo que no se dice, existe? creo fervientemente que sí y es lo que intentamos desentrañar de los textos de los demás, y de los propios por supuesto. Para leer diferente, para hablarnos diferente… sentí que me pasabas un porro al final. Je 😀
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## Sobre cómo el indie rock devino en música para salas de espera - por TomassonRG
 
 Hubo un momento en el que el indie rock era una género que uno escuchaba, siendo joven, para navegar el conflicto adolescente. Yo crecí escuchando los primeros discos de Arctic Monkeys y The Strokes. Fueron la banda sonora de mi adolescencia y mi joven adultez. Todavía recuerdo los escalofríos que sentí cuando escuché por primera vez en mi vida la intro de I Bet You Look Good on the Dancefloor, la bomba sonora con la que los pibes de Sheffield, liderados por Alex Turner, se presentaron al mundo.  
@@ -947,7 +1001,13 @@ Buenas, muy interesante la historia del indie rock como previo al “auge” del
   
 Gracias por la nota, aprendí un montón!
 
-# Ronda de Escritura
+### Nicolás Rosa comentó:
+
+Hola, TomassonRG! Cómo andás? Resulta muy interesante para mí la preocupación que ponés sobre la mesa y muy acertada la identificación y descripción del problema. Si bien hay un compromiso a comentar por la dinámica de dónde estamos escribiendo me suceden dos cosas con tu texto: por un lado es un tópico que acapara en gran parte mi interés tanto como mí atención de forma tal que me siento llamado a comentar aún si la actividad no lo requiriese, pero a su vez me lo otro que me sucede es que por más que así lo sienta no estoy siendo convocado a esto ya que el tema me excede si hubiese que pensarlo en los de dar soluciones o acotaciones. Con lo cual definí limitarme a compartirte las preguntas que me hacía al leer, muchas de ellas sin respuesta. Esto es, no porque tenga cuestionamientos sobre tus texto sino porque este me disparaba a ampliaciones del asunto.¿Fue realmente el indie rock revolucionario alguna vez? Bueno es claro que comercial o no había una distinción entre el antes y el ahora que vos marcás muy bien con la referencia espacial: claramente el rock no se pensaba para ser oído en salas de espera. Me llama mucho la atención esa atinada distinción con lo mainstream que hacés y me pregunto ¿Hay graduaciones dentro de lo mainstream? Pareciera que la antesala de ello no se distingue tanto de sí mismo. Otras dudas que me surgen son las referentes al problema de la homogeinización de un género, algo que está en línea directa con lo planteado acerca de lo revolucionario y subversivo. ¿Cuál podría ser el género de la rebeldía hoy? ¿Hasta qué punto hoy lo indie es indie en el mismo sentido que antes en un ámbito tan carcomido por las grandes industrias? ¿Alguien va a arriesgar lo que para sí  es un negocio por uno artistas de garage (que por cierto ya quedan pocos)? Pueden, aún con ayuda de las redes, competir unos chicos comenzando contra años de estudio y desarrollo del marketing cultural como industria y conocimiento prácticamente academizado? Cómo se notará estás preguntas probablemente resulten sin sentido ya que vienen de alguien que de the strokes no conoce más que las canciones de publicidades o de aquel álbum que recupera la figura de basquiat y que su mayor referencia para designar lo indie actual podría ser algo como cavetown, mxmtoon o ese tipo de música para dormir, función que a veces en un mismo sentido o por motivos similares es adjudicada a un fenómeno difícil para mí de definir qué a veces se lo llama "lo fi". Esto no va como desprestigio, claro, yo soy el primero en sentir cómodo con eso que con bjork y arca que, no al no saber nada de la música y lo experimental, ciertamente me descoloca al punto de que lo evito por completo. También en el indie actual hay algo de eso, ¿no? Me siento cómodo en esa sala de espera, quizás como sociedad estamos muy cansados para los pogos, y muy viejos para una etapa de rebeldía adolescente.
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## cucaracha - por Nimiedades
 
 estoy esperando el subte  
@@ -1039,7 +1099,13 @@ será que la expectativa mata la realidad?
   
 espero que mi cocina se llene de cucarachas
 
-# Ronda de Escritura
+### Nicolás Rosa comentó:
+
+Primero que nada muy buen poema (que probablemente no sea poesía, aunque seguro lo es). Hace no mucho hablaba con alguien a quien admiro mucho que me contaba que en la poesía no hay sujeto, que el yo lírico no equivale a un sujeto porque lo que se está diciendo no se dice con la pretensión de ser Carlos o Juana sino que es un yo que podría ser cualquiera, aún cuando dice llamarse Carlos o Juana. "Yo" es como nos llamamos todos, y si me preguntan quién está ahí y yo respondo "yo" no estoy respondiendo nada, porque "yo" es todos y por tanto es nadie, o "nadie". ¿Dónde está la potencia de la poesía? ¿En el encabalgamiento? Lo dudo, y vos también que cuestionás la función del Enter, pero no quita que haya una relación. No es que la forma de la poesía sea el recorte en versos sino que ese recorte atiende a la poesía para que está sea tal, es una condición no necesaria pero cuya recurrencia marca que efectivamente allí hay algo. Lo que me contaba esta persona es que lo que hace la poesía no es si o narrar algo, decir algo (que no es poco). Lo que dice la poesía es una verdad, la muestra, la ilustra, y por ello no puede pertenecer a una única persona, o quizás al contrario, cómo no pertenece a nadie solo puede ser verdad. Un funcionamiento similar al de las matemáticas. Un discurso absoluto sin enunciador. No se trata de una obra con tintes políticos donde uno puede o no estar de acuerdo. En tu poema describís una sensación: dolor. Nadie puede decir que no está de acuerdo o que es una cuestión puramente subjetiva ya que la capacidad de sentir dolor está más cerca de la universalisad que cualquier ley física. En el dolor solo hay verdad, y el dolor es algo que nadie lo puede negar y mucho menos a otra persona (salvo que sea un pelotudo). Esa narración que te pertenece por autoría pertenece a todos por sentimiento, fue ese "yo", pero podría ser cualquiera quien le habla a ese otro, quien se pone en la posición de observador y le habla a "vos" y le recuerda su miedo y quien siente pesar por esas cucarachas que, al modo de casa tomada de Cortázar, invaden su espacio más íntimo, recortan el ámbito de lo privado en un marchar arrollador, dónde ese "vos" cede y cede por miedo su territorio.
+
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## cuál es el cuerpo de una máquina - por tin.
 
 ¿cuáles son, entonces, los combates que se libran en cada máquina?  ¿qué entidad asubjetiva insiste entre pulso y pulso del clock? ¿qué inmenso campo de multiplicidades subyace entre líneas de código?  
@@ -1073,7 +1139,9 @@ Tin. Sabes que hace unos años yo pensaba que nuestro cuerpo era una máquina pe
 
 Desde un comienzo me dio la impresión de leerte como una metáfora, desde “los combates que se libran dentro de una maquina” a “los fallidos para articular el deseo” resuenan en mí, la profesión que elegí y a la que me dedico. Como psicoanalista comparto cierta obsesión de recorrer los signos y sus direcciones en las telas de araña que generan los discurso de las personas, sobre todo, porque muchas veces los “hackers” o “virus” pueden provenir desde adentro de la propia máquina y no desde afuera. Por eso considero tan importante tu pregunta, sobre todo para devenir un poco más consiente del porque y para que hacemos las cosas aunque sea a través del cuestionamiento y no tanto de la conceptualización que deja fuera tantas otras. Creo que tu escrito va más allá de esta interpretación que le estoy asignando, pero me gusto porque me hizo pensar en esta idea. Desde el psicoanálisis, se intenta no ignorar esta percepción del cuerpo y su relación con el lenguaje, aunque caigamos en la obsesión estatista por el solo hecho de objetivar la teoría. Tu pregunta sigue todavía repitiéndose en mi cabeza como una alarma disparada por una falta en el sistema. Gracias por tu escrito.
 
-# Ronda de Escritura
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
 ## mi primer amor - por Quien?
 
 Como todos los principios arrancó lindo.  
@@ -1112,4 +1180,6 @@ Me gustó el texto porque transmite algo que creo que en algún momento nos pas�
   
 Ahora bien, todo esto fue hasta leer el último par de líneas que hacen al sujeto de tu texto a tu padre o no se sabe si tu ex, en una confusión edípica muy perturbadora para mi mente. Como bien dijo Freud, mi conciencia quiere reprimir la idea que tu texto me hizo pensar. Muy bien Freud, sos un capo.
 
-​
+<a href="index.html">
+<img src="logo.png" alt="Logo" width="119" height="107">
+</a>
