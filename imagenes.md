@@ -15,14 +15,14 @@ Subís una imagen, comentás 3 fotos de otrxs participantes, y recibís 3 coment
 
 ### 2 - Desde las 17:00 del Sábado te va a llegar un correo con 3 imágenes para que comentes.
 
--Es **obligatorio** comentar las 3 imágenes que te tocan.
--Podés comentarlos hasta las **23:00 del Miércoles 11 de octubre**.
--Cada comentario tiene una extensión **mínima de 100 palabras**. No hay máximo.
--El comentario puede ser lo que se te ocurra. Desde un análisis hasta un pensamiento que te haya disparado.
--También te va a llegar un documento con todas las imágenes. Si querés, podés comentar másimágenes que las asignadas.
+- Es **obligatorio** comentar las 3 imágenes que te tocan.
+- Podés comentarlos hasta las **23:00 del Miércoles 11 de octubre**.
+- Cada comentario tiene una extensión **mínima de 100 palabras**. No hay máximo.
+- El comentario puede ser lo que se te ocurra. Desde un análisis hasta un pensamiento que te haya disparado.
+- También te va a llegar un documento con todas las imágenes. Si querés, podés comentar másimágenes que las asignadas.
 
 ### 3 - Durante el Miércoles, te va a llegar tu imagen junto a 3 comentarios como mínimo.
 
--También vamos a armar una compaginación con todas las imágenes que se comentaron.
+- También vamos a armar una compaginación con todas las imágenes que se comentaron.
 
 <link rel="shortcut icon" type="image/x-icon" href="favicon.ico">
