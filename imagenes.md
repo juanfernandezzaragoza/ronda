@@ -13,7 +13,7 @@ Subís una imagen, comentás 3 fotos de otrxs participantes, y recibís 3 coment
 - Puede ser una fotografía, una obra de arte, un dibujo o lo que quieras. 
 - Tiene que ser de tu autoría.
 
-### 2 - Desde las 17:00 del Sábado te va a llegar un correo con 3 imágenes para que comentes.
+### 2 - Desde las 12 del Domingo te va a llegar un correo con 3 imágenes para que comentes.
 
 - Es **obligatorio** comentar las 3 imágenes que te tocan.
 - Podés comentarlos hasta las **23:00 del Miércoles 11 de octubre**.
