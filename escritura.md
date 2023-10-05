@@ -12,7 +12,7 @@ La [ronda de escritura](comentarios.md) es un evento virtual en que nos comentam
 - Puede ser poesía, ficción, ensayo o lo que quieras.
 - Puede ser un texto viejo o uno que escribas para la ocasión.
 
-### 2 - Desde las 17:00 del Sábado te va a llegar un correo con 3 textos para que comentes.
+### 2 - Desde las 12:00 del Domingo te va a llegar un correo con 3 textos para que comentes.
 
 - Es **obligatorio** comentar los 3 textos que te tocan.
 - Podés comentarlos **hasta las 23:00 del Martes 10** de octubre.
