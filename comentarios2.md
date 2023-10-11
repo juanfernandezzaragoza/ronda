@@ -73,7 +73,8 @@ el cierre del texto me pareció una forma concisa y elegante de acabar con todas
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## A vos - por Nicolás Rosa
 
   
@@ -128,6 +129,7 @@ Podría no ser una nota antes de partir, pero no queda claro adonde…por suerte
 
 
 <div style="page-break-after: always;"></div>
+
 ## Amigx - por Joaquin
 
 Amigx  
@@ -190,6 +192,7 @@ Dicho eso, me gustó de tu poema que invita a la aceptación, en vez de a la neg
 
 
 <div style="page-break-after: always;"></div>
+
 ## Anoche volví a nuestra casa - por Alma Valle de Río
 
 Anoche volví a nuestra casa. ¿Podrás creerlo? La ventana seguía abierta, después de tanto tiempo. Apenas tuve que empujarla para entrar.  
@@ -225,7 +228,8 @@ Que bellooooooo! Que traición la de la mente y el sentir de recordar tanto, afi
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## El pastel - por Ian Mihura
 
 Aquel día a mi compañero de paseos vespertinos se le había antojado el hambre. Habíamos ya charlado sobre todo el catálogo de platos típicos de su país y el mío, y a él se le estaba desfigurando la cara. Recorridas todas las regiones del mundo, en todos sus hitos históricos; guisos medievales, arroces persas, carnes nómadas a la brasa, licores de altamar, y aguas de Vichy, dijo:  
@@ -263,7 +267,8 @@ Lo inquietante de este relato es, a mi parecer, que el lector intuye por el fina
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Es de la feria de mi barrio - por Laguna
 
   
@@ -380,7 +385,8 @@ Qué mundo se esconde a flor de nuestra piel, en los estantes de nuestra casa, v
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Hola, mundo - por Marcos Matías
 
 Hola, mundo. Sensaciones subjetivas. Veo una película, un peliculón, la película mira también. Películas dentro de películas. Observo, senso directamente todo. ¿Qué soy? Conciencia, soy la experiencia, todo lo que veo, lo que escucho, lo que siento y lo que pienso. Todo aparece espontáneamente. Una fuerza natural. No la puedo ver, ni nombrar, pero la puedo sentir. Se puede sentir todo lo que hay, nombrar no. Y está siendo, está en todos lados, está acá. No estoy solo, nada está separado: todo lo que existe se toca con todo lo demás. Todo es interrelación, interconexión, interdependencia, interdefinibilidad, intersubjetividad, intercambio, todo es metáfora e interpretación.  
@@ -415,7 +421,8 @@ Si como decis en el texto, es imposible aprehenderlo por completo,aun cuando la 
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Las dos caras del Zahir - por Miguel Tal
 
 Ahora que de tu noche soy dueño   
@@ -487,7 +494,8 @@ Que particular el escribir, esto que escribes es quizás y probablemente para al
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Legado de los dioses: destino adverso - por Agustin R. Iribarne
 
 Nacimos en un paraje inhabitado  
@@ -581,7 +589,8 @@ No tengo mucho más para decir. Me gustó y pienso como con los tres textos que 
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Marley en dos tiempos - por Fernando Gargano
 
 En la calle el sol ardiente desconcertaba los humores. Marley sentía vivir en la gruta de un volcán. Retrocedió por ropa fresca y arremetió con su día. Eran las doce. El tren subterráneo esta vez dejó un incómodo malestar en ese hombre desdibujado, impulsado a caminar por los túneles en busca de una idea. El ruido de las ruedas aceradas acompañaba a un músico de andén que tocaba un carnavalito. Era como si un ave degollada, desangrada, enrojeciera la fuente donde pretendía refrescarse. La imagen le desagrado. Pensó en ese muchacho que competía contra el ruido y le dio un billete de los chicos. Bajo en Jujuy para combinar con la línea nueva. Todo le pareció un chiste. El tren se escondió en el agujero y parecía escucharse el sikus desde aquel fortuito mar de chispas. Con la escalera mecánica se sintió un monje en elevación. Había tomado vino en el almuerzo. No debió hacerlo. En el hall superior, dos chicas flacas y desarrapadas cantaban gregoriano. Una gorra vacía de toda moneda delataba el espanto. Estaba decidido, todo o nada. Iba a proponer por fin el plan a Burucúa, aunque algo lo frenó. Lo moral, lo ético. Nunca supo de esa diferencia.  
@@ -618,7 +627,8 @@ el cierre me pareció bello, capaz por algo de una victoria austera, a la vez no
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Melómano - por Jacinto
 
 si cierro los ojos mientras me hablás  
@@ -688,7 +698,8 @@ Gracias por tu escrito.
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Punto - por Flan García Linera
 
 Desde aquí no se ve, pero la quebrada sigue hacia el oeste. Para allí, donde el viento apunta cuando sube por el cauce del río seco. Levanta tanto polvo que más bien puede estar agrandando la montaña.   
@@ -724,7 +735,8 @@ Este texto me hizo pensar en cómo con el tiempo todo tiende a desarmarse, a agr
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Recreciendo - por Juan Zaragoza
 
 Reteniendo las heridas para no penar,  
@@ -802,7 +814,8 @@ Guena meditación.
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Sobre las piedras - por Sebatttiano
 
 … Tengo esta idea fija en mi cabeza sobre mi percepción del tiempo sobre los hechos sucedidos, no puedo evitarla ni darle tampoco una vuelta de tuerca, así que he aquí mi estático infierno.  
@@ -855,7 +868,8 @@ Seba; es realmente intrigante lo que escribiste y quizás requiera un analisis m
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Soltarnos - por Maitena 
 
 Entendí, que para crecer había que soltarnos.  
@@ -913,7 +927,8 @@ recuerdo ese sentimiento de cuando corté por primera vez. la sensación y el do
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Ultimo testimonio de Amílcar Díaz, encontrado en una caja junto a otras de sus pertenencias - por MartinCanela
 
 ¿Quien le dará importancia a mis desvaríos?  
@@ -973,7 +988,8 @@ Me gustó mucho que me haya tocado tu texto.
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Voz a texto (Culposidades en primera persona) - por Manoni
 
   
@@ -1051,7 +1067,8 @@ Gracias por compartir
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## girasoles - por Vanna Cirianni
 
 podría contar las sincronias  
@@ -1101,7 +1118,8 @@ Buenas, Vanna. Buen poema como el último que leí de vos. Ayer tuve el agrado d
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## morimos - por tin.
 
 hay quienes dicen que muerte es un desierto, una llanura inerte sin relieves, sin montañas, sin ídolos. no sé qué contacto con la muerte han tenido esas personas, pero cuando me ha tocado a mí, la sensación fue la de la carne gritando, la de una montaña de plomo aplastándome, la del incesante fin de una caída.   
@@ -1134,7 +1152,8 @@ Esta experiencia me cambió la vida y a partir de ese día todo fue muy diferent
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 
 ## Crimen - por Mariela Zepol
 
@@ -1177,7 +1196,8 @@ Podría describirse como violencia, adicción, desesperación... Distingo una ca
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## El Himno de los Rompecorazones - por Migor Beltsmaun
 
 con el cariño que recuerdo  
@@ -1250,7 +1270,8 @@ Cambios, desamor.... Que complicado poner en palabras o definir el amor, podría
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Ella. - por Mar
 
 Ahí estaba ella. De pie bajo la tormenta. En el umbral de la puerta, mirándome.  
@@ -1299,7 +1320,8 @@ Si se me permite, cambiaría “fue allí cuando me di cuenta que era un sueño�
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## La moneda de la vida - por Gabriela
 
 De la omnipotencia a la impotencia no hay un abismo. Son dos caras de la moneda de la vida. Ambas son defensas de la personalidad. Ambas nos dañan. Ambas nos alejan del verdadero contacto con nosotros mismos y con el otro. No estamos vivos para "lucirnos” ni para  
@@ -1340,7 +1362,8 @@ La pregunta es qué hacer una vez que nos convencimos de quiénes somos y qué t
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Lo nuestro  - por Abril Lell
 
 Cuando observé  
@@ -1387,7 +1410,8 @@ Me interesó el verso que dice "Una grafía fluyó en mí". No sé bien a qué t
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
+
 ## Oda a Echeverría - por Un Hobbit Perdido en CABA
 
 Quiero ser un poeta romántico  
@@ -1484,4 +1508,4 @@ un diccionario nuevo
 </a></p>
 
 
-<div style="page-break-after: always;"></div>
+<div style="page-break-after: always;"></div> 
