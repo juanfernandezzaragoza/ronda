@@ -1,4 +1,9 @@
-# Ronda de Escritura - 2 de Octubre 2023
+# Ronda de Escritura - 10 de Octubre 2023
+
+<link rel="shortcut icon" type="image/x-icon" href="favicon.ico"> 
+
+[<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](actividad.md)
+
 ## A day in the life - por Gon
 
 Se perdía la forma en un momento de duda  
@@ -72,11 +77,15 @@ el cierre del texto me pareció una forma concisa y elegante de acabar con todas
 ## A vos - por Nicolás Rosa
 
   
-      Esta noche vuelvo a escribirte, como ya se nos ha hecho costumbre. No puedo dejar de escribir cartas, pero es lo que en verdad quisiera. Y debo disculparme por el desorden de la casa. Mi habitación ya está llena de esos sobres rojos y tuve que comenzar a guardarlos en otros lugares. La cocina ya es un desastre y tengo miedo de que se mojen en el patio. Terminé de llenar por completo la casita del perro, él ya no la usaba.  
-      Pero ese no es mi mayor problema ahora mismo, lo que pasa últimamente está comenzando a asustarme. Desde que comencé a escribirte, todos los días amanezco siempre con una nueva herida en el cuerpo. Algunas veces en la cara, otras, en la espalda o en el cuello. No entiendo cómo es que se producen, me preocupa que haya sido el perro mientras duermo. Puede ser que me guarde rencor por el asunto de su casita. Entre tantas cartas hace días que no lo encuentro, no sé cómo estará el pobre (probablemente hambriento). Temo que se encuentre perdido o que se haya escondido y que quizá ya nunca lo encuentre.  
-      No sé siquiera si leés mis cartas,  o si te gustan. Ya ni siquiera recuerdo lo que decían, y cuando lo hago, olvido para quien iban dirigidas. No puedo abrirlas y leerlas, no lo soportaría. Por eso te pido que por favor, las leas cuando no estoy y luego me las recuerdes, y que si no fueron de tu agrado me lo hagas saber. Te pido que seas blando, sabés bien que soy sensible a tus críticas. Cuando termines, te ruego que te deshagas de aquella que leíste,ñ. Llevatelas a aquel lugar de la casa, ese que no me dejás conocer, ya que yo no podría deshacerme de ellas jamás. El perro mordió algunas que tal vez no hayas leído, y es por eso que está castigado, tratá de no mimarlo mucho. Podés acariciarlo un poco, pero no más que un poco, sé que nadie puede resistirse a su ternura.  
-      No es que no sean importantes, pero quizá ya son demasiadas, las escribo con alguna que otra lágrima, las guardo en un sobre rojo, del rojo que más te gusta, y las coloco en el primer lugar que en el que quepan. Al dia siguiente, despierto con una nueva herida, pero aveces pienso que no importa, que no dolió tanto como escribir la carta, que no me dolió nada. Más que estas heridas indoloras, lo que me inquieta es esa sensación de dolor allí en donde no hay nada, ni una gota de sangre, ni una de esas delatoras marcas en la piel.  
-      Por cierto: la casa huele muy mal. Hay bolsas de basura por alguna parte de la cocina. Si encontrás al perro sacalo por mí.
+Esta noche vuelvo a escribirte, como ya se nos ha hecho costumbre. No puedo dejar de escribir cartas, pero es lo que en verdad quisiera. Y debo disculparme por el desorden de la casa. Mi habitación ya está llena de esos sobres rojos y tuve que comenzar a guardarlos en otros lugares. La cocina ya es un desastre y tengo miedo de que se mojen en el patio. Terminé de llenar por completo la casita del perro, él ya no la usaba.  
+  
+Pero ese no es mi mayor problema ahora mismo, lo que pasa últimamente está comenzando a asustarme. Desde que comencé a escribirte, todos los días amanezco siempre con una nueva herida en el cuerpo. Algunas veces en la cara, otras, en la espalda o en el cuello. No entiendo cómo es que se producen, me preocupa que haya sido el perro mientras duermo. Puede ser que me guarde rencor por el asunto de su casita. Entre tantas cartas hace días que no lo encuentro, no sé cómo estará el pobre (probablemente hambriento). Temo que se encuentre perdido o que se haya escondido y que quizá ya nunca lo encuentre.  
+  
+No sé siquiera si leés mis cartas,  o si te gustan. Ya ni siquiera recuerdo lo que decían, y cuando lo hago, olvido para quien iban dirigidas. No puedo abrirlas y leerlas, no lo soportaría. Por eso te pido que por favor, las leas cuando no estoy y luego me las recuerdes, y que si no fueron de tu agrado me lo hagas saber. Te pido que seas blando, sabés bien que soy sensible a tus críticas. Cuando termines, te ruego que te deshagas de aquella que leíste,ñ. Llevatelas a aquel lugar de la casa, ese que no me dejás conocer, ya que yo no podría deshacerme de ellas jamás. El perro mordió algunas que tal vez no hayas leído, y es por eso que está castigado, tratá de no mimarlo mucho. Podés acariciarlo un poco, pero no más que un poco, sé que nadie puede resistirse a su ternura.  
+  
+No es que no sean importantes, pero quizá ya son demasiadas, las escribo con alguna que otra lágrima, las guardo en un sobre rojo, del rojo que más te gusta, y las coloco en el primer lugar que en el que quepan. Al dia siguiente, despierto con una nueva herida, pero aveces pienso que no importa, que no dolió tanto como escribir la carta, que no me dolió nada. Más que estas heridas indoloras, lo que me inquieta es esa sensación de dolor allí en donde no hay nada, ni una gota de sangre, ni una de esas delatoras marcas en la piel.  
+  
+Por cierto: la casa huele muy mal. Hay bolsas de basura por alguna parte de la cocina. Si encontrás al perro sacalo por mí.
 
 ### Flan García Linera comentó:
 
@@ -1118,6 +1127,356 @@ https://youtu.be/L\-EUAP5_4po?si=CGXZLVfHm7oLGd4a
 Este año y el anterior he acompañado a varias personas que han experimentado muertes cercanas, algunas terribles y dolorosas de formas que probablemente jamás pueda entender. Todavía no me tocó a mi experimentar esto, pero me he dado cuenta de que en estas experiencias una sensación nueva se manifestó en mi, algo que no había sentido antes, o quizás sí pero no con la claridad con la cual lo viví en el pasado.   
 En el 2022, en el cumpleaños de uno de mis mejores amigos, mientras todos festejábamos, comiendo, contando historias, riéndonos entre amigos, familia, luego de la media noche el padre de mi amigo falleció, ahí, en su cumpleaños, con toda la familia y amigos. Fue una de las experiencias más inexplicables, tristes y hermosas que jamás viví. Y real, más real que casi cualquier cosa hasta entonces. Fue doloroso por lo obvio, pero lo sorprendente para mi fue la sensación de paz y calma que me dieron todas estas personas que allí estaban, una contención colectiva, algo que compartimos, abrazos y lágrimas y una tristeza sumamente aguda, pero también el calor que sólo otorga un abrazo real, sentido, honesto. Esa noche me di cuenta de que la sensación más fuerte que invadió mi cuerpo, no fue la tristeza, el duelo, la pena o las ganas de que las cosas no sean lo que son. Sino más bien fue agradecimiento, por haberlo conocido, por haber estado ahí, por toda la gente que ahí estaba, por mi vida, mi familia, por tener más oportunidades cada día.  
 Esta experiencia me cambió la vida y a partir de ese día todo fue muy diferente, llegué a un estado al cual no sabía que se podía llegar, poder extraer de la muerte un impulso de vida. Y creo que esa es una hermosa enseñanza, que me pasó, viví, me apareció y espero honrarla y revivirla cada vez que pueda, para poder hacer de mi vida algo bastante parecido a la hermosura.
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+
+## Crimen - por Mariela Zepol
+
+Un calibre 38 sobre  la mesa, merca de la buena, el último trago de un whisky berretón. Fue a ducharse. A la mujer la dejó llorando de dolor y asco, inmóvil sobre la cama que aún seguía tendida. Ducha fría, espasmódica, rápida. Desnudo y mojado todavía, esnifó tres veces. Llevó el caño a la sien de la mujer que gemía. Gatilló. Él reía con risa estridente, no recordaba si estaba cargado. Reía porque no eran sus sesos los que iban a volar. Asco. Ella quedó sin respiración y se creyó muerta, pero era el miedo que no la dejaba respirar. Cuando se dio cuenta que estaba viva, esnifó ella también hasta que un hilo de sangre cayó de su nariz. Entonces él le mezquinó una nueva línea pero no el dinero. Ella sonrió cuando vio que los billetes eran extranjeros. Esos no se tocaban, esos se ahorraban, siempre.  
+  
+No fue a ella a quien mató ese jueves, aunque estuvo cerca. Se salvó por un pelito.  
+  
+Jueves, tan temprano y ya el hartazgo de vivir. Hasta que la lleven a otra cama y, tal vez, con tiempo para enredarse entre las sábanas. Tal vez sin palabras, sin silencios. ¿O qué será lo que ocurra después? Daba lo mismo si la bala salía, bah si la bala entraba, entraba, explotaba todo y salía airosa a recorrer su existencia. Lo mismo estaría debatiéndose si la cremación o el entierro, si resucitar al cuarto día o apuntarme para una nueva reencarnación. Me juré que no volvería a estar con un rati. Vino a buscarme y no pude decirle que no. No puedo decirle no. Miedo y asco. La próxima, no lo atiendo; la próxima, disparo yo.  
+  
+Jueves, día, todavía mañana fresca y sol radiante que no quema sólo se anuncia: aquí estoy.  
+  
+No seré yo quien muera este día de sol promiscuo, jueves, impar. Y decir morir es, claramente, un eufemismo. Porque más tarde, como a las cinco, el calibre 38 disparará su bala letal sobre otra sien. Esta vez con chaleco de rati puesto.  
+  
+Yo lo sé. La piba cae. Él no va a  hacer ningún esfuerzo por atajar el  cuerpo y cae. La risa estridente se apaga. Queda whisky todavía. En ella ni la muerte es estridente. Un plop seco contra la alfombra verde y ya. La mató, no murió, la mató.  Yo lo sé porque siempre vuelve a buscarme con sus manos llenas de horror. Son las seis. El calibre 38 sobre la mesa, sobre la mesa que tiene el mantel floreado, el 38 sin enumerar, merca de la buena, siempre, y el whisky berretón que corroe el hígado. Asco
+
+### Mar comentó:
+
+Me gusta que empieza y termina de la misma manera. Además está escrito de manera que brinda muchas imágenes sensoriales.   
+Hay cosas en la trama que no logré entender, pero aún así se genera suspenso y ganas de seguir leyendo.   
+Me lo imaginé como en una obra de teatro. Los personajes en el escenario, una mesa de madera oscura con algunas partes hundidas por los golpes. En el medio, una botella de whisky por la mitad, tapada. En una esquina, el vaso con un último trago, y al lado una montañita de merca.   
+En una esquina de la habitación un colchón sucio tirado en el piso, al lado de la mesa el hombre desnudo, mirando a la mujer. Se le acerca lentamente con mirada de asco y el calibre 38 en la mano derecha, la mata, aparece un gran charco de sangre al rededor. Y seguiría.   
+Toda la obra transcurría sin hablar. Y con los cortes muy fluidos, casi ni se notan.
+
+### Gabriela comentó:
+
+Asco. Eso transmite. Porque conectar con el mundo es también conectar con lo inmundo. No hay manera de ser indiferente. Lo leo un martes a la mañana apenas el sol asoma, como ese jueves de mañana fresca en el que amaneció ella, tan lejos de mí y yo sintiéndola tan cercana. ¿Porque le tocó esa mierda de vida y a mi esta? Yo cobijada entre sábanas limpias y café con aroma a vainilla de unas cápsulas deliciosa, leyendo un excelente cuento desde mi sillón con lindas vistas. Veo en mi repisa un Chivas Regal, rico whisky que no deja huellas…  
+De pronto me explota la cabeza y por primera vez me pregunto ¿Por qué a ese y todos los canas hijos de puta le dicen rati? Si Rati en sánscrito es la diosa del sexo, el deseo y la sensualidad… Investigaré…  
+La muerte para ella es tan cercana que se convierte en una amenaza constante. Para mi también puede ser cercana, pero vivo como si estuviera a salvo.  
+Este cuento cuesta. Cuesta entrar de prepo a ver lo que uno no quiere ver. Me tapo con mis sábanas blancas. Pero ya no puedo descansar.
+
+### Abril Lell comentó:
+
+Ambiente intenso y caótico.  
+Podría describirse como violencia, adicción, desesperación... Distingo una cadena de actos seguida de los días jueves. ¿Hay automatismo en las acciones del hombre? ¿Narradora involucrada?   
+¿Por qué actúa así el hombre? ¿Cuál será su pasado?
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+## El Himno de los Rompecorazones - por Migor Beltsmaun
+
+con el cariño que recuerdo  
+los amores cuerdos  
+con el arrepentimiento que lamenta   
+las cuenta  
+en que yo  
+por error, por pavor  
+debo siempre un favor  
+hoy declaro mi quiebra   
+en materia de amor  
+  
+que todo labio con los años  
+va juntando daños  
+que porque araño el sedimento  
+que ya siento  
+lo siento  
+ya soy  
+del amargo sabor  
+de haber sido dolor  
+hoy me acuesto solito  
+y recito un perdón  
+  
+dejen para mí la acusación  
+de tránsfuga, de vil, de seductor  
+dejen para mí la inculpación  
+de náufrago falaz, de desertor  
+  
+pero perdonen  
+al himno triste de los rompecorazones  
+que se arrepiente  
+que pide a su amor que se ausente  
+  
+que lo que causa una poesía  
+dura todavía  
+después de que la calma  
+enfríe el alma  
+del poeta  
+del autor  
+se hace desilusión  
+y después del tachón  
+una frase que anuncia  
+renuncia al amor  
+  
+que viene bien y en un momento  
+va a cambiar el viento  
+que no hace falta prometer  
+si con los ojos te miento  
+si dura lo que una pasión  
+y después el bajón  
+de notar mi apagón  
+que se fue esa mirada  
+y que nada quedó
+
+### Mar comentó:
+
+Todo el poema habla de amor y arrepentimiento.  
+Empieza como si alguien estuviera rendido con el amor. Cómo si estuviera harto de sentirlo y de deber favores por esto.   
+Los labios que juntan daños por arañar el sedimento es la desesperación que siente una persona que lastimó y pide perdón. Busca en lo más profundo de su ser el mejor de los perdones para ofrecer a la otra parte.  
+La persona ruega que lo acusen de lo que sea pero que acepten este perdón que expresa debido a su arrepentimiento, el cual pide que el amor se aleje por un rato para que escriba una poesía para después. Cuando el poeta este en calma por el frío de la misma. Para cuando este se desilusione y al escribir tache lo que había y sobre esto escriba una renuncia al amor, para mejorar.  
+El poema cierra muy lindo diciendo que con las miradas se dicen muchas cosas y que si con una miente con lo que siente es porque no quiere que el resto note el un bajón que llega al perder una pasión, cuando todo pasa junto y no te deja procesar y entender que pasó. Entonces se encuentra con que el bajón pasó a ser apagón y en esa mirada mentirosa que dijo muchas cosas se perdió el amor. 
+
+### Mariela Zepol comentó:
+
+Cambios, desamor.... Que complicado poner en palabras o definir el amor, podríamos hablar horas sobre posibles definiciones. Lo difícil que resulta aceptar o cambiar gracias a las rupturas. 
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+## Ella. - por Mar
+
+Ahí estaba ella. De pie bajo la tormenta. En el umbral de la puerta, mirándome.  
+No me atreví a quitarle los ojos de encima, estaba aterrado, no sabía que pasaría, y por eso... no dejaba de mirarla. No se movía o hablaba, solo me miraba con sus ojos llenos de furia. El aire era denso y la tensión se cortaba con cuchillo. Insistí en sostenerle la mirada a pesar de sus advertencias. A pesar del miedo...  
+Y de pronto! se movió...  
+Se quitó un mechón de pelo de la cara, corrió hacia donde yo estaba y con el terror de la situación volví en mi.  
+Salí corriendo hasta estrellarme con la puerta de salida, fue allí cuando me di cuenta que era un sueño.  
+Mamá ya no estaba.   
+No podía dañarme de nuevo.  
+Ya la había matado.
+
+### Gabriela comentó:
+
+Un texto impactante. Generoso en su sobriedad: con apenas pocas palabras transmite terror, compasión, locura, violencia y hace volar la imaginación al horror de una escena donde, como la vida misma, se amalgama el sueño con la realidad,   
+  
+Más allá del cuento, que es disfrutable en sí mismo y tiene todo lo necesario para, sin análisis alguno, recomendarlo; el texto invita a diferentes análisis: lo que significa la relación madre\-hijo, el poder que tiene y lo que construye/destruye ese vínculo inevitablemente vertical. Por otra parte, me remite al psicoanálisis y la importancia de “asesinar a los padres” para poder sacarle el poder opresor que representan y lograr un atisbo de ser uno mismo.   
+  
+Como todo lo bueno, me deja el sabor de querer más. Me quedo con esa avidez morbosa de saber más y que el autor no me proporciona. No queda más remedio que despertar la imaginación, cosa que se agradece, y mucho.
+
+### Un Hobbit Perdido en CABA comentó:
+
+Muy fuerte. Me hizo acordar a la película Misery, basada en un libro de Stephen King. Qué loco cómo va cambiando la manera de relacionarnos con nuestros progenitores a medida que crecemos y entramos en la adultez. No sé si esto es meramente un ejercicio de invención literaria o si es una expresión sublimada basada en hechos reales, pero bien hecho.
+
+### Migor Beltsmaun comentó:
+
+Me gusta el presagio del final en el segundo párrafo “la tensión se cortaba con cuchillo”.   
+  
+El final contando algo impactante y carente de emoción me hizo acordar mucho al principio de “El Extranjero” de Camus y me gustó mucho.  
+  
+Otra cosa que estuvo buena es que el final es casi un Haiku:  
+  
+Mamá no estaba  
+Ya no podía dañarme  
+La había matado  
+  
+Por otra parte, la escena del sueño me dio miedo. Me pasa con las películas de terror que las cosas sobrenaturales no me generan nada, pero en el momento que los personajes rozan la locura, la enajenación o la perversión me aterroriza. Supongo que porque es más real, y posibilidades más cercanas.  
+  
+Si se me permite, cambiaría “fue allí cuando me di cuenta que era un sueño” por algo como “y la pesadilla terminó”. Por un lado, porque acorta la frase contribuyendo al impacto del final. Por otro, porque es un poco más implícito el cambio de sueño a realidad (o incluso deja abierto si lo primero era efectivamente un sueño del que despertó, o si la muerte se da al final de la escena tras un momento de disociación y lapsus, factible en momentos de tanta tensión y violencia).  
+  
+ Por lo demás, escalofriante.  
+
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+## La moneda de la vida - por Gabriela
+
+De la omnipotencia a la impotencia no hay un abismo. Son dos caras de la moneda de la vida. Ambas son defensas de la personalidad. Ambas nos dañan. Ambas nos alejan del verdadero contacto con nosotros mismos y con el otro. No estamos vivos para "lucirnos” ni para  
+"escondernos". Vinimos para saber quiénes somos y descubrir tenemos para dar a la vida. 
+
+### Mariela Zepol comentó:
+
+Hola, Gabriela. Me sugiere, en principio, el pensar en los prefijos del "omni" e "im". Me lleva de paseíto por el Tao. No me cuesta nada ubicarme en uno de los extremos del Lucirse \- Esconderse. Repito el No hay abismo y pienso: entonces es una frecuencia que resuena pequeña y crece.  
+  
+Abrazo
+
+### Un Hobbit Perdido en CABA comentó:
+
+Me gustó la idea de que tanto la omnipotencia y la impotencia son "defensas de la personalidad". Yo en un momento me sentí omnipotente, y luego caí en la cuenta de que era porque me sentía muy solo, y la vuelta a la realidad fue dura. Es posible llegar a conocernos a nosotros mismos? Yo creo que uno puede estar toda una vida tratando de llegar el fondo de ese abismo que es la conciencia humana y así igual puede no alcanzarle el tiempo.   
+Creo que más allá de lucirse o esconderse pasa por encontrar el lugar de uno en el mundo, eso que decís de encontrar "qué tenemos para dar a la vida", que a veces es tan difícil, porque no todos venimos a este mundo con las ideas tan claras sobre quiénes y somos y hacia dónde vamos. Muchas veces todo es un gris indeterminado y confuso donde muchas cosas nos atraen y nos tiran a a la vez, pero hay que tener la mente clara y el corazón tranquilo para seguir nuestro propio camino de la existencia
+
+### Migor Beltsmaun comentó:
+
+  
+Diría que sí hay un abismo, sin negar el resto. Son dos caras de la misma moneda, y ambas son dañinas, pero hay un abismo.  
+  
+La omnipotencia duele cuando termina, incluso si daña siempre.  
+  
+En un precipicio, la altura y el pozo están uno al lado del otro. Comparten la frontera. Son dos caras de lo mismo. No hay pozo sin meseta ni meseta sin pozo. El abismo es el vínculo entre ambas.  
+  
+Escalar es divertido, caer no tanto.  
+  
+Lucirnos y escondernos son dos caras de lo mismo. Hay un abismo entre ellas.   
+  
+Vinimos para conectar con nosotros mismos y con el otro, eso nos salva.  
+  
+La pregunta es qué hacer una vez que nos convencimos de quiénes somos y qué tenemos para dar a la vida.  
+
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+## Lo nuestro  - por Abril Lell
+
+Cuando observé  
+me quedé sin palabras.  
+  
+Poco a poco comprimía sentimientos,  
+me mentalizaba no sentir.  
+  
+Eras vos y era yo,  
+eramos nosotros.  
+  
+Vos lo habías inmortalizado,  
+yo lo sentia nuestro.  
+  
+Una grafía fluyó en mi.  
+  
+Tanta,   
+que me asustaba.   
+Tanta,  
+que te asustaría.
+
+### Mar comentó:
+
+Me gusta el poema, te hace sentir mucho.   
+  
+Me llevó a pensar en una pareja, sentada en un banco cualquiera de una plaza cualquiera. No se miran a los ojos, sino a los pies, sin embargo, la mirada de ella es bastante contrariada. Sus ojos color ámbar permiten ver una lucha muy profunda y dolorosa, ella sabe que siente mucho, pero que ya no es igual. No quiere aceptar esto último, por eso es también triste y cansada.  
+   
+Él, totalmente absorto en sus pensamientos, vuelve a vivir recuerdos una y otra vez, recuerdos manchados de nostalgia, pensando en cuán felices eran, tan felices eran juntos que se olvidaron de todo lo demás y esto fue un error.    
+  
+Se miran por última vez, un último adiós, ella siente un hilo que tira de su corazón, siente que está unido con el de él, quiere luchar por su amor, pero es incapaz. Ya no quiere luchar, ya no quiere temer por sus sentimientos. Él siente una conexión, pero la ignora. Suspira, se pone de pie. Ella sabe que no volverá a verlo, entonces se pone de pie y estira su mano, para estrechar la de él y sentir su tibieza por última vez. Sin embargo, contra todo pronóstico, él la ignora, la abraza, la mira una vez más y se va.
+
+### Gabriela comentó:
+
+Cuando de verdad se observa, se ve y se siente profundo, no pueden aparecer las palabras. Sólo asoma la poesía cuando se logra comprimir los sentimientos para mentalizarse y no sentir. O sentir tanto que no hay un yo ni un vos. Sólo un nosotros. Nada más terrorífico que asomarse al amor, eso que cuando se encarna deja de ser inmortal. Aunque por su eternidad asusta. Tanto. 
+
+### Un Hobbit Perdido en CABA comentó:
+
+Buenas! No lo entendí del todo, pero bueno, siento que eso a veces pasa con la poesía, el tema de la opacidad (es difícil que el lector descifre todos los sentidos que quiso poner el autor en el texto). Pero me gustó la idea de la identidad del yo lírico desdoblada en dos sujetos, es un rasgo muy moderno, por otro lado, creo que es algo que nos pasa a muchos, que nos sentimos divididos o escindidos de alguna u otra forma.   
+Me interesó el verso que dice "Una grafía fluyó en mí". No sé bien a qué te habrás referido, pero me gustó porque es como una imagen entre lo abstracto y lo concreto. Lo relaciono con la frase de Henri Bergson para definir la imagen, cuando dice que "es más que una idea, pero menos que una cosa". Algo así me pasó con tu poema. Saludos 
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+## Oda a Echeverría - por Un Hobbit Perdido en CABA
+
+Quiero ser un poeta romántico  
+quiero alejarme de este pegajoso   
+siglo veintiuno  
+y volver a la época dorada  
+de nuestras letras,  
+quiero usar palabras   
+como infausto  
+o preclaro  
+y pasear en galera y levita  
+por la Plaza de la Victoria  
+en mi carruaje  
+y que las damas me vean pasar  
+y extasiadas digan  
+“miren  
+allá va el poeta  
+de la Recoleta”.
+
+### Mariela Zepol comentó:
+
+Celebro esa inquietud.   
+Enhorabuena.  
+La búsqueda   
+parece acertada:  
+Recuperar las palabras  
+Salud, al poeta de la recoleta
+
+### Abril Lell comentó:
+
+¿Sentimiento de nostalgia, anhelo? regresar, sentir, reencarnar en un siglo anterior. Época dorada del poeta. Dónde era reconocido como tal, dónde su arte se adoraba aún más, donde su prestigio era otro. 
+
+### Migor Beltsmaun comentó:
+
+  
+Hay un truco  
+para salvarse de la nostalgia   
+decimonónica  
+  
+Pero requiere atención  
+y compromiso  
+  
+Requiere vislumbrar  
+las chispas de futuro  
+que hay ahora  
+  
+La máquina de vapor  
+hoy es una computadora  
+  
+Lo pegajoso  
+Era humo negro fabril  
+  
+Había nueva ciencia  
+nueva literatura  
+podemos construirlas  
+  
+No sos un poeta romántico  
+ni vas a pasear en galera y levita  
+  
+Ya pasó  
+el tiempo de los hippies  
+de los guerrilleros cubanos  
+del mayo francés  
+de los surrealistas  
+de Boedo y de Florida  
+de los Ilustrados  
+de los Modernos  
+y de los Socráticos  
+  
+Muchos  
+que paseaban en carruajes  
+soñaban el siglo de oro griego  
+  
+No fueron poetas  
+ni románticos  
+miraban columnas  
+decían “neoclasicismo”  
+y no escribieron nada  
+memorable  
+  
+Heredar  
+ser espíritu de época  
+no es imitar  
+ni decir infausto  
+ni preclaro  
+  
+Es escribir  
+un diccionario nuevo  
+
 
 <p align='center'>
 <a href='index.html'>
