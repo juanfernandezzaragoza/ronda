@@ -9,7 +9,7 @@ Que nadie te vea hace mal. Da ansiedad y deprime.
 
 **Ronda** es el espacio para reencontrarnos. 
 
-Por ahora hacemos [Rondas de Escritura](escritura.md).
+Por ahora hacemos [Rondas de Escritura](actividad.md).
 
 Con tu participación y consejo, vamos a construir una plataforma que nos haga bien.
 
