@@ -9,13 +9,13 @@ Que nadie te vea hace mal. Da ansiedad y deprime.
 
 **Ronda** es el espacio para reencontrarnos. 
 
-Por ahora hacemos [Rondas de Escritura](escritura.md) y [Rondas de Imágenes](imagenes.md).
+Por ahora hacemos [Rondas de Escritura](escritura.md).
 
 Con tu participación y consejo, vamos a construir una plataforma que nos haga bien.
 
 <link rel="shortcut icon" type="image/x-icon" href="favicon.ico"> 
 
-[<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](escritura.md)
+[<span style="padding: 10px 20px; background-color: #D3D3D3; color: #0A0A0A; border: 1px solid #000; border-radius: 4px; cursor: pointer; transition: background-color 0.3s ease;">Participá</span>](actividad.md)
 
 <a href="index.html">
   <img src="logo.png" alt="Logo" width="199" height="178">
