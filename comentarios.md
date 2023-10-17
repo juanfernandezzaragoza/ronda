@@ -202,14 +202,7 @@ Es interesante como, ante la muerte de un ser querido, el cuerpo pasa a converti
 
 ## Alimento al monstruo - por César Zorba
 
-Cuando estoy solo alimento al monstruo, para que no me coma. Él tiene un hambre brutal. Sus entrañas son una caverna bestial. Su estómago ruge cuando me ve llegar.  
-Pero hubo un tiempo de monstruo pequeño, de fierecilla desamparada, que me observaba desde adentro con sus ojos verdes engarzados en la bola de pelambre prieta que es su cuerpo. Lloraba un llanto apagado, un chillido. Quería un poco de mí, de todo lo que abundaba entonces en mí. Le di de comer, con lástima.  
-El hambre no es salsa ni deseo, no. Es un lugar inhóspito donde habitan aquellos que no supimos albergar. Le di de comer porque tuve miedo de abandonarlo. Comprendía, creo, ya entonces, que éramos uno. El monstruo engulló, voraz, pequeños trozos de mi abundancia. Con cada bocado, crecía. En ese momento no creí que mi abundancia acabaría. Pronto se sació. Cuando esto pasaba, lo dejaba aparte, en algún rincón donde no estorbara a mis pensamientos. El monstruo dormía.  
-No hablé de nadie con el monstruo. ¿Para qué? Acabarían pensando que yo era el monstruo, por mantenerlo. Pero había que estar en mi lugar para entender. Un monstruo no es un ser que se deja morir tan fácilmente. Además, mi monstruo estaba en un armario, tan dormidito. No le hacía mal a nadie. De vez en cuando, tenía hambre. Le convidaba de comer. Yo tenía tanto… Y así, él no me molestaba. Nunca me mordió… al principio.  
-Es tan difícil tener un monstruo. A veces tengo ganas de preguntarle a la gente cómo hacen para vivir tan tranquilamente, dónde guardan sus monstruos. ¿O acaso no tienen monstruos? ¿Sólo yo estoy condenado a alimentar a esta bestia?  
-La abundancia se termina, más tarde o más temprano. Cuando se terminó la mía, el monstruo ya era grande, una sombra enorme hecha de pelo y mandíbulas. Entonces quiso comerme. Me mordió el cuerpo. Mi cuerpo, que había sido vigoroso. Lancé un chillido, pero no me tuvo lástima. Escapé como pude. Busqué comida y volví. Los ojos verdes me miraban sin parpadear mientras las mandíbulas masticaban.  
-Al fin, tuve que dejar de comer para alimentar al monstruo. Perdí mi fuerza, mi anterior cuerpo. Perdí mi propia hambre. Cada vez que la gente no me ve, me escabullo al enorme depósito donde lo albergo, y con mi cuerpo enclenque y atolondrado arrastro toneladas de comida. El monstruo las devora súbitamente, dándome apenas el tiempo justo para escapar.  
-Yo estoy bien, aunque no lo parezca. No necesito comer. Me conformo con que no me coma.
+[Este texto no se muestra porque está participando de un concurso literario].
 
 ### Ian Mihura comentó:
 
