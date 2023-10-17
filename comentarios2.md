@@ -195,15 +195,7 @@ Dicho eso, me gustó de tu poema que invita a la aceptación, en vez de a la neg
 
 ## Anoche volví a nuestra casa - por Alma Valle de Río
 
-Anoche volví a nuestra casa. ¿Podrás creerlo? La ventana seguía abierta, después de tanto tiempo. Apenas tuve que empujarla para entrar.  
-Me dirás que ya no es nuestra casa, que ya no existe un nosotros. Permitime este interludio melancólico, y luego podrás volver a tu próxima clase, o a lo que sea que hacés para olvidarnos.  
-Hay algo extraño de entrar a la casa propia por la ventana. Una nota siniestra vibra en todos esos movimientos que antes eran cotidianos.  
-Sobre el piano cerrado, una finísima capa de polvo se extiende como un lienzo que no me atrevo a macular. Pienso en el final de todo. Habrá polvo cuando ya no estemos aquí para alimentar a los ácaros que se comen nuestra piel muerta, sobrevivirán sin cuidado los perros que pierden el pelo y la piel en nuestro suelo, o acaso todo será tierra triunfadora a través del mundo y el tiempo, sobre nuestras urbes y nuestros recuerdos, tan lejos que al ojo le da vértigo asomarse.  
-Mi deseo vaga por el espacio desierto buscando algo a qué aferrarse. Los muebles se han ido y en sus lugares habitan sombras que no me atrevo a indagar. Rasco el fondo de mi memoria para traer un instante perfecto, pero me traiciono. Miles de recuerdos vulgares se apilan difusos entre estas paredes. Son partículas microscópicas, excrecencias de ácaros que siguieron viviendo de nosotros mucho tiempo después de que nos fuimos. Si los toco, desaparecen. Me alejo, y se acumulan. Y lo único que siento es la impotencia de que aquí ocurrieron las mejores cosas de una vida que no puedo recordar.  
-Si el amor es una onda, como la luz, o como la música, que hubo encontrado en nuestros cuerpos el espejo, o el diapasón, de su tono, y por un tiempo vibramos a la par, como dos notas de un acorde que poco a poco se fue esfumando, ¿no es posible que retumbe aún, fantasmagórico entre estas paredes, el eco de lo nuestro?  
-Adivino la marca de tus dedos en una chapa, y un momento me encuentra. La imprimiste aquella vez que nos cruzamos en la cocina sin razón aparente, una madrugada como esta, en la que no queríamos estar solos. Con cuidado, poso mi mano sobre el fantasma de la tuya, entrelazando mis dedos con la huella que dejaste. Al retirarla, veo un monstruo decadáctilo: tu pasado y mi presente confundidos, tu ausencia y mi nostalgia, algo vivo, algo muerto, algo anónimo.  
-Huyo arrepentido de mi obra, pero me persigue por las escaleras y en un tropiezo, me toma del talón. Comprendo que es tarde para escapar de lo que estuve buscando. Cierro los ojos y la oscuridad llama al silencio. Nuestro hogar se desvanece lentamente. En algún momento noto que ya no estoy en casa. Pero el monstruo vino conmigo.  
-Es cierto lo que dijiste. Nosotros ya no existe. En su lugar hay algo muerto y reanimado que me acompaña cuando salgo a caminar, y paso por la puerta de casa.
+[Este texto no se muestra porque está participando de un concurso literario].
 
 ### Fernando Gargano comentó:
 
