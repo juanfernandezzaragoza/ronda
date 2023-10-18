@@ -81,6 +81,7 @@ Hermoso relato. Me despertó esa sensación que traen siempre las relaciones que
 
 
 <div style="page-break-after: always;"></div>
+
 ## Amor-es - por Aída González Escalante
 
 Es algo que se siente dentro de ti. También afuera. Quedito y fuerte.   
@@ -144,6 +145,7 @@ Destaca que el amor puede tomar muchas formas, desde los pequeños gestos de ama
 
 
 <div style="page-break-after: always;"></div>
+
 ## Bailar y escribir. Escribir y bailar. - por Cosa
 
 Yo bailo, a veces también escribo.  
@@ -226,6 +228,7 @@ Saludo la forma, el mensaje, la onda y la frescura. Realmente, tu texto me conmo
 
 
 <div style="page-break-after: always;"></div>
+
 ## Baile - por Ian Mihura
 
 ¿Y cómo hacer el ojo ciego  
@@ -282,6 +285,7 @@ Me parece un gran poema tanto a nivel formal como de contenido y creo que tiene 
 
 
 <div style="page-break-after: always;"></div>
+
 ## Confesion - por Gerardo
 
   
@@ -318,6 +322,7 @@ Lo interpreté como una oda a la memoria. Lo hecho anida en emoción. Las emocio
 
 
 <div style="page-break-after: always;"></div>
+
 ## De 4 sesiones - por Yuritzi
 
 Hablando, leyendo, escribiendo desde lo que cabe a mí, porque lo que no cabe no tiene lugar, ni espacio, ni energía, ni consciencia, y entonces no me pertenece, no es mío, sino que está fuera de mí. Falta de consciencia, como el lugar que no se habita. Inconsciente, lugar que no se habita pero que pertenece.  
@@ -354,6 +359,7 @@ El recurso de hacer preguntas retóricas es muy bueno también. Invita al lector
 
 
 <div style="page-break-after: always;"></div>
+
 ## Dead - por Coraline
 
 Agarró el cuchillo mientras lo miraba de cerca. Suspiró. No era el primero, pero tampoco sería el último. No era culpa suya, nunca lo había sido. Víctima desde niño, victimario ahora. Toda su vida había vivido en la miseria, tratado como un insecto, una plaga. Era su hora de vengarse, de ser quien realmente era.  
@@ -384,6 +390,7 @@ El escrito me gusta, tiene buena trama, el suspenso genial, quiero saber cómo v
 
 
 <div style="page-break-after: always;"></div>
+
 ## Depredador - por Nicolás Mercado
 
 Sé silencio de fuego,  
@@ -435,6 +442,7 @@ Un gusto leerte!
 
 
 <div style="page-break-after: always;"></div>
+
 ## Deseos - por Chiara
 
 Dicen que el deseo es la fuente de motivación para moverse, para avanzar, para crecer, para vivir. Por ende, las características del deseo determinan las características de la motivación que genera; de la misma manera que el desempeño de un auto depende del tipo de combustible recargado y el funcionamiento de nuestro cuerpo cambia dependiendo de las propiedades de los alimentos ingeridos.   
@@ -469,6 +477,7 @@ Especificar el deseo es lo que apremia en estos momentos. El resto del tiempo, d
 
 
 <div style="page-break-after: always;"></div>
+
 ## El desnivel del cuerpo - por Ro
 
 la mitad del dia soy un gran ovillo de nervios que tiembla y no sabe quién es ni cómo desenredarse   
@@ -549,6 +558,7 @@ Yo no continuaría el texto, pienso que es un poema que refleja las emociones de
 
 
 <div style="page-break-after: always;"></div>
+
 ## El proceso - por Tom Bombadil
 
 Mi relación con mi casa fue cambiando a lo largo de los años. Ahora puedo habitarla, y la disfruto, a pesar de sus fallas. Me acuerdo años atrás cuando me dejaba dominar por la ansiedad, cuando no podía quedarme sentado y caminaba por toda mi casa (que tampoco es muy grande), pero me acuerdo cómo entraba y salía del baño, me miraba al espejo , y me preguntaba "quién soy? qué carajo se supone que tengo que hacer con mi vida? para qué vine a este mundo?" Pensamientos oscuros y feos ocupaban mi cabeza, y después me tocaba la cara, de forma nerviosa, quizá queriendo canalizar de esa forma toda la frustración y la impotencia que sentía en otros aspectos de mi vida. Por qué será, no? De dónde sale toda esa ansiedad, que es como una avalancha que se te viene encima, si arrancó solo como un copito de nieve?   
@@ -579,6 +589,7 @@ La parte de “Valés. Aunque no lo creas” es conmovedora. Es muy interesante 
 
 
 <div style="page-break-after: always;"></div>
+
 ## El sacrificio (Por el camino de PuanVol5) - por Florencia
 
 * Publicado en el número 5 de la revista literaria Por el camino de Puan. Se puede descargar el volumen del instagram de la revista con el mismo nombre
@@ -612,6 +623,7 @@ me encantó cómo va cambiando el clima que se genera. al principio muy de domin
 
 
 <div style="page-break-after: always;"></div>
+
 ## El último segundo es eterno - por Alma Valle de Río
 
 [Este escrito no figura en la página por participación a un concurso literario] 
@@ -649,6 +661,7 @@ Muy linda la construcción de ese espacio íntimo y el trabajo con lo corporal. 
 
 
 <div style="page-break-after: always;"></div>
+
 ## II - por rimvaud
 
 Frío y distante,  
@@ -697,6 +710,7 @@ Gracias por compartir :D
 
 
 <div style="page-break-after: always;"></div>
+
 ## Improvisación - por Marcos Matías
 
 Como me gustaría ser una hoja de un árbol bien alto, alto hasta el cielo. Y caer. Caer tranquila y pausadamente desde bien arriba. Y verlo todo, las copas de los árboles, que están alrededor y que fluyen como el viento, como olas. Y seguir cayendo, caer por las ramas, tropezarme, volar con el viento, perder el camino, ¿cuál camino? Y volver, ir y volver, ir y venir, desplazarme, moverme, danzar, planear junto a otras hojas que se van desprendiendo y que caen desde lo más alto del mundo, conmigo, con ellas. Nos vamos moviendo todas juntas. Algunas hasta encuentran su lugar entre las ramas, quietas por un rato, otras, seguimos cayendo, buscando. Ahora veo los árboles por dentro, estoy a mitad de camino y a lo lejos ya veo la tierra, llena de hojas, que como yo en algún momento, futuro, quietas por un rato ya encontraron su lugar. Lo tengo presente y sigo, hay mucho por ver hasta llegar.
@@ -734,6 +748,7 @@ O como las hojas que pisamos y crujen.
 
 
 <div style="page-break-after: always;"></div>
+
 ## Incorporarse - por Juan Zaragoza
 
 Sacudirse el polvo  
@@ -774,6 +789,7 @@ Una progresión interesante. La facilidad con la que se puede desmoronar esta re
 
 
 <div style="page-break-after: always;"></div>
+
 ## La filosofía estructural - por Fernando Gargano
 
 Alguna vez vi una planta tragarse entera a una casa. Estuve allí. Solo precisó tiempo. Las raíces y los ladrillos eran una sola entidad. El olor, el mismo. Los ruidos, los del viento. Como hojas secas revoque y mampostería se desbandaban en otoño. Armando un suelo de monte, en franco desnivel.  
@@ -815,6 +831,7 @@ Gracias 🫂
 
 
 <div style="page-break-after: always;"></div>
+
 ## La vejez y ser mujer y todo a la vez  - por Dos nombres
 
 Envejecer me da miedo no por la vejez sino por el conocimiento adquirido para ese momento.  
@@ -848,6 +865,7 @@ El texto abre muchas preguntas: ¿cuáles es ese conocimiento que aterra? ¿cuá
 
 
 <div style="page-break-after: always;"></div>
+
 ## Limbo - por Cristian Ortiz
 
 Una vez viajé, como la gente de Instagram. Y vi nieve y árboles muertos, y vi los cuervos graznar y revolotear sobre basura, y me vi en sus ojos y no me reconocí. Una vez viajé, caminé entre bosques anegados a perpetuidad por una llovizna leve, y mientras mis pies se hundían en el suelo humedecido pensé en mi madre y quise hundirme yo también en las aguas negras de la nada. Una vez viajé, y vi montañas invadidas por caracoles de caparazones blancos, y mientras escalaba, tratando de no pisarlos, me imaginé que así era el limbo, una calma un poco triste y eterna.
@@ -911,6 +929,7 @@ El autor, en un viaje, tiene una epifanía: se imagina como es el limbo, gracias
 
 
 <div style="page-break-after: always;"></div>
+
 ## Maldita cita: el abrazo de la muerte - por Agustin Iribarne
 
 El té está helado.   
@@ -1054,6 +1073,7 @@ Hay, en más de una ocasión: rima
 
 
 <div style="page-break-after: always;"></div>
+
 ## Palomas y plazas - por Jacinto
 
 Gordas palomas se mueven saltan  
@@ -1120,6 +1140,7 @@ Si la ignorancia es un don o una maldición, jamás terminaré por comprender.
 
 
 <div style="page-break-after: always;"></div>
+
 ## Primeras impresiones de Cuba desde el punto de vista de un Europeo - por Fede
 
 Every time I set my foot in the streets there is something entertaining happening: a party outside a house – they like to play music and dance in the streets at any time – people selling the most random stuff, yelling the available items (“escobaaaaas” shrieked a woman vending brooms); kids playing with just about anything; dogs running after cats or other dogs or cars or motorbikes (the criteria seemed pretty random: after rushing a motorbike, you’d expect that the following one would annoy them as well. No, it didn’t); mechanics fixing vehicles out in the open; people making lines to buy toilet paper; people trying to sell you anything, change your money, get your money in exchange original Cuban Cigars for a tenth of the price you find in shops, Rhum and of course sex.  
@@ -1174,6 +1195,7 @@ Imaginé que, visitando Cuba como argentina, tal vez no me hubieran sorprendido 
 
 
 <div style="page-break-after: always;"></div>
+
 ## Reflexión de un cobarde - por MartinCanela
 
 A veces pienso que vine a este mundo  
@@ -1238,6 +1260,7 @@ Disfruté mucho de esta poesía. Es algo criptica, tuve que buscar alguna palabr
 
 
 <div style="page-break-after: always;"></div>
+
 ## Reminiscencia - por Elixir ultravioleta
 
 Vi tu pintura favorita pero ya no hablamos. Estuve por el parque qué fecuentabamos y me pasé de largo. No volví a pisar tu casa, ni a ver a tus amigos. Me encontré con tus cartas. Me reí de algunas de ellas. Sé qué aun hablas de mi, yo aún te menciono. A veces con nostalgia y otras con coraje. Vi fotos tuyas con otra chica. No supe que sentir. Seguiste con tu vida y yo seguí con la mía. No te extraño eso es un hecho. Tampoco te quiero, pero no te odio. Han pasado un par de años, he viajado continentes y me he olvidado del nosotros. Sin embargo, hoy en el museo, frente al cuadro de tus sueños. Recordé aquellos ayeres, el cariño entre dos seres y la nostalgia intermitente. 
@@ -1263,6 +1286,7 @@ El escrito me hace sentir muchísima nostalgia de un amor perdido. Dolor de imag
 
 
 <div style="page-break-after: always;"></div>
+
 ## SIN HOGAR - por Ale Borbón
 
 Y aquí ando hoy , me dejaste todo el contenido, pero nada para contenerlo , te llevaste los ladrillos y el tejado,  incluso la pintura azul, las ventanas para que no parezca que entra el sol y  hasta la puerta como para que nadie supiera como entrar .  
@@ -1310,6 +1334,7 @@ La pérdida es la idea sobre la que más me revuelvo, y esta descripción, detal
 
 
 <div style="page-break-after: always;"></div>
+
 ## Sentimiento - por Abril lell
 
 Poemarios de inspiración  
@@ -1353,6 +1378,7 @@ Y que ese texto trascienda en el futuro y se deshaga del nombre que lo inspiró,
 
 
 <div style="page-break-after: always;"></div>
+
 ## Sobre la consciencia - por Nicolás Rosa
 
 La consciencia es una grave problemática del pensamiento occidental, aún cuando éste no sea consciente de aquello. En la historia de la filosofía con frecuencia se ha dividido la razón de los sentimientos y las pasiones, el logos del pathos, sin embargo esa división resulta incompleta de no atender a una frecuente confusión. Pues suele englobarse dentro de la razón dos categorías distintas, a saber, la razón propiamente dicha y la consciencia. Ante tal planteo suele surgir la pregunta: ¿si soy consciente, no estoy entonces pensando? Sí, por su puesto que lo estoy, y no podría ser de otro modo, no puedo no pensar. El problema está en la inversión de la cuestión: puedo pensar sin tener consciencia alguna. Un hombre se levanta por la mañana y ya está muerto, recibió un disparo en su sien mientras dormía. En el baño, se lava las manos y la cara, pero jamás mira hacia el espejo. Desayuna, se va a trabajar, compra alguna cosa en el camino. Todos a su alrededor notan que está muerto, pero nadie se atreve a decírselo. Vaga por las calles como en casa, como aquel rey que creía estar vestido, hasta que un suave comentario lo desnuda. El hombre muerto camina bajo el sol y siente una pequeña gota de sudor cayendo por su frente, desliza su pañuelo, sus manos, sus mangas, hasta que finalmente una gota cae frente a él, es roja. Sus manos también se han teñido de rojo, así como su pañuelo, así como su cara. No estoy seguro de si logró darse cuenta de su muerte antes o después de caer, pero cae, finalmente, muerto. Son reiteradas las veces en que el desfazaje entre el pensamiento y la consciencia nos hacen morir dos veces.  
@@ -1392,6 +1418,7 @@ Segundos después, gira el cuello y ve lo lejano del suelo. Voltea la cabeza, no
 
 
 <div style="page-break-after: always;"></div>
+
 ## Sonatita semanal - por Manoni
 
 Sonatita semanal  
@@ -1463,6 +1490,7 @@ Gracias por compartir (: <3
 
 
 <div style="page-break-after: always;"></div>
+
 ## Tres inviernos  - por Motor Psico
 
 1.  
@@ -1545,6 +1573,7 @@ Otro dato: quizás el yo poético se siente como una planta, por eso las odia, l
 
 
 <div style="page-break-after: always;"></div>
+
 ## Un segundo - por Juan Silis
 
 Si tuviera que escribir un libro entero sobre un solo segundo de mi vida, escribiría sobre el segundo en el que me detuve a ver el bosque incendiado. Mil páginas escribiría sobre ese instante y solo ese instante. Fue apenas una mirada pero la imagen me quedó grabada en la cabeza para siempre. Es eterna esa imagen, la puedo ver cuando duermo y cuando canto. Y cuando lloro y cuando río. Es la imagen de mis pesadillas porque ahí murió ella, bajo las llamas que se expandían mientras yo las observaba. Es la imagen de mis mejores sueños porque es la última fotografía mental que me quedó de ella.   
@@ -1596,6 +1625,7 @@ No tengo mucho que agregar, quedé impactado. Gracias.
 
 
 <div style="page-break-after: always;"></div>
+
 ## Una ciudad invisible más - por Mariano Fernandez Zaragoza
 
 Dopata no le parece chica a quienes ahí madrugan, transitan, estudian, trabajan, celebran o descansan.   
@@ -1633,6 +1663,7 @@ También (la flashé un poco perdón) me hizo pensar que de alguna forma el text
 
 
 <div style="page-break-after: always;"></div>
+
 ## Una dosis de pétalos  - por Umi
 
 Piensa en la cantidad de lágrimas tuyas  
@@ -1712,6 +1743,7 @@ Un poema hermoso. Me encanta el ambiente marcado y constante que con construye e
 
 
 <div style="page-break-after: always;"></div>
+
 ## Una pregunta. - por Ana Gor
 
 Pues..  
@@ -1754,6 +1786,7 @@ No puedo negar que hay cuestiones normativas a corregir, pero no me importan.
 
 
 <div style="page-break-after: always;"></div>
+
 ## Vueltas - por Paula
 
 Toca timbre. Le abre una señora bajita, morocha, de piel marrón y ambo azul. Inés saluda y dice que viene a visitar a Enriqueta Romero. El lugar tiene varios ambientes. Los atraviesan hasta llegar al fondo. Se cruzan con varios viejitos, hombres y mujeres. La mayoría están sentados. No hablan entre ellos. El sonido predominante viene desde el televisor.   
@@ -1815,6 +1848,7 @@ Un texto hermoso, sumamente emotivo. La narración de una visita a un familiar d
 
 
 <div style="page-break-after: always;"></div>
+
 ## bombas - por Vanna Cirianni
 
 *14/10/23   
@@ -1917,6 +1951,7 @@ siempre es un gusto leerte y saberme acompañada en mi sentir, aun cuando me par
 
 
 <div style="page-break-after: always;"></div>
+
 ## brazos - por Capsa
 
 Hace media hora estoy acá, respirando lentamente y moviéndome apenas. Trato de entender para qué necesito mis brazos.  
@@ -1953,6 +1988,7 @@ Si tengo que ponerme en policía, siento que este texto no está completo, sino 
 
 
 <div style="page-break-after: always;"></div>
+
 ## colchón de ternura - por waurisch
 
 huesos dientudos y cosas derretidas  
@@ -2022,6 +2058,7 @@ De todos modos mi opinión es solo una opinión de muchos y puede que otra perso
 
 
 <div style="page-break-after: always;"></div>
+
 ## donde duele la muela  - por paloma
 
 se me traba la lengua  
@@ -2074,6 +2111,7 @@ Gracias por tu texto :)
 
 
 <div style="page-break-after: always;"></div>
+
 ## flores o espinas - por Dora
 
 lo que crece de mí  
@@ -2165,6 +2203,7 @@ Las relaciones y las interacciones con los demás pueden tener un impacto signif
 
 
 <div style="page-break-after: always;"></div>
+
 ## fragmento - por tin*
 
 [...]  
