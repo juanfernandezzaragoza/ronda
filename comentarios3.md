@@ -1,4 +1,238 @@
 # Ronda de Escritura - 17 de Octubre 2023
+
+## La filosofía estructural - por Fernando Gargano
+
+Alguna vez vi una planta tragarse entera a una casa. Estuve allí. Solo precisó tiempo. Las raíces y los ladrillos eran una sola entidad. El olor, el mismo. Los ruidos, los del viento. Como hojas secas revoque y mampostería se desbandaban en otoño. Armando un suelo de monte, en franco desnivel.  
+Fue en la ciudad. En el centro de la manzana. Al final de un pasillo transitado por insectos de humedad que de las hojas y el musgo fabricaban humus.  
+Supe dejar ser. ¿Qué alternativa tenía ante la fuerza del océano terrestre?  
+Como un reloj, si la comparación no violenta el silencio, un colibrí bebía de los pétalos lilas. Una avispa hizo su nido sembrando mi terror y espanto. Una gata gris enorme y preñada se apropió de un viejo colchón. Allí nacieron aquellas panteras que una a una despoblaron el lote en sus exilios.  
+El colibrí, picaflor nervioso alguna vez detuvo su marcha. Me convocó con un cascabeleo maquínico y se paró en una rama diminuta como una hebra de hilo. Tomé la foto y en segundos desapareció de la vista. Fue solo una vez. Se habría cansado, se habría sorprendido. Nunca pude explicar la detención.  
+Ayer, ocho de Octubre tras muchos años después, vi este estanque vegetal en un pasillo silencioso de San Telmo. Es un inicio, no va a perdurar. No lo salvarán sus tres metros desde el suelo, o su diminuto tamaño estructural. La planta central no alcanza los cuatro centímetros. Todo el conjunto mide cuatro pulgadas. En una ciudad de millones, tiene la entidad del polen en el universo; sin embargo, de esto estoy seguro, podría devorarse la casa entera si le dieran tiempo.  
+
+
+### Agustin Iribarne comentó:
+
+Si este texto es una analogía con el estructuralismo pero parece muy adecuado e interesante, pero desconozco sus bases. De todos modos está muy bien pensado y es muy poético. Me gustan los giros como "océano terrestre", y "Allí nacieron aquellas panteras que una a una despoblaron el lote en sus exilios". La fuerza poética del texto me hace volver sobre las frases, y no quisiera que termine.  
+Algunas ideas de correción. La frase "si la comparación no violenta el silencio" la pondría entre guiones más que entre comas, para que separe al discurso de otro modo. Siento que quedaría mejor. Por otro lado, la frase "tras muchos años después" siento que queda redundante. Propongo: tras muchos años (hasta ahí) o tras muchos años, despues que ... (y completar la frase)  
+Es interesante cómo relaciona ámbitos tan diversos entre sí como la ciudad y la naturaleza, y su forma de vincularse. Creo que se podría extender un poco más, jugar más con estas relaciones y profundizarlas. El tono del texto te lleva y eso es muy positivo.
+
+### Gerardo comentó:
+
+ Hace no mucho tiempo vi árboles tragarse tumbas . Fue en el rincón mas recóndito de un cementerio ubicado en el Istmo de Tehuantepec. Los pobladores les llaman atrapa tumbas. Los árboles se posan cual si fueran aves en el techo de las tumbas y  sus raíces, poderosas e implacables penetran al interior de las bóvedas en busca tal vez de los huesos del difunto.  
+Nadie visita ese lugar. Los últimos cuerpos que algún día depositaron una flor o una plegaria ya son  canto en el viento istmeño, alimento de pochotes o intrusos incógnitos de algún mineral que habitó una mazorca.  
+De modo que entré a tu relato por la puerta grande, tan grande que lo abracé en cuerpo y alma, es decir, escritura , a esto que ahora estás leyendo.  
+Gracias, muchas gracias
+
+### Nicolás Mercado comentó:
+
+Textazo. En los bordes del terror y la belleza.
+
+### Umi comentó:
+
+Leerte me recordó un texto que escribí, inspirada en mi casa favorita. Una casa que estaba a pocas cuadras del lugar donde vivía, salía a pasear con la perrita con la excusa de ir a verla. Y me quedaba allí, inventado historias, y esperando ver cual se hacía realidad ese día.  
+Aun no se el porque, pero cuando me imagino allí parada, me recuerdo como niña. Por algún motivo me conecta con la niña que soy. Mientras te leía también despertó eso en mi. Y me pareció gracioso imaginarme como me estaba viendo desde fuera, por la cantidad de gestualidad que estaba creando.  
+Gracias 🫂  
+
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+<div style="page-break-after: always;"></div>
+
+## Reflexión de un cobarde - por MartinCanela
+
+A veces pienso que vine a este mundo  
+A cantarle de espaldas a los muertos  
+A remover viejas coplas  
+En desiertos de huesos calcinados  
+Y pensar que de alguna forma me pertenecen más a mi que a otros.  
+  
+Siempre con la altivez de estar vivo,  
+Me inclino frente a los árboles que no tienen más que hojas y llanto agrio;  
+Y mientras me arrancan las notas de nada  
+Las manos blancas y descarnadas, se arrastran detrás  
+Se aferran con esfuerzo al cadalso.  
+  
+No me quieren los muertos, para ellos estoy demasiado vivo, soy demasiado ingenuo  
+Y cuando de mañana abro mis rojas alas de pena, se quejan de que les tapan el sol  
+Tampoco me quieren los árboles  
+Con su piel ruda y sus raices vigorosas   
+No me prestarán sus copas para vislumbrar colina alguna  
+No me darán sus frutos  
+Para ellos estoy demasiado muerto.  
+  
+Y quizá no se equivoquen. Nunca me alcé de esta piedra.  
+Este yeso oblongo, que lleva grabado una glíptica incierta  
+Y al olvido, yo le haría tan grata compañía  
+(Si tan solo me atreviera a mirarlo a los ojos)  
+Y el enterrador, que con su bota cercena pieles y cabezas, se me hace un ser tan vil  
+Sin embargo pasa, y no le objeto nada.  
+Ni una palabra  
+
+
+### Paula comentó:
+
+Ya desde el título entiendo que voy a entrar a una situación incómoda. No me gusta sentirme cobarde.  
+  
+La referencia a muertos, huesos y desierto me lleva a mis propios duelos.  
+  
+Percibo un ataque con la expresión “me arrancan las notas” y me pregunto si tendrá que ver con el daño que, como personas, somos capaces de generarnos a nosotras mismas. Por ejemplo, cuando tenemos la certeza de que nadie nos quiere, ni siquiera los muertos.  
+  
+“Nunca me alcé de esta piedra” me recuerda mis propios auto\-reproches, cuando me pongo a rumiar sobre las cosas que “debería haber hecho” y me convierto en mi propia enemiga.
+
+### Mariano Fernandez Zaragoza comentó:
+
+A veces, siempre y/o quizás.  
+Ahora existe un mundo, transitable, entre el cielo de las copas y las coplas y el suelo de cenizas y pasado. Un poema rojo y gris que muestra inmensas posibilidades pero denota una quietud moribunda. Aparecen intermedios que lejos de ser equilibrios son exclusiones agónicas. Como si se pudiese, pararse entre todo, y darle a todo la espalda.  
+Para mi, me quedo pensando en la arena, el barro, el suelo y la tierra.   
+La cobardía es telúrica. ¿Y el coraje también?
+
+### Fede comentó:
+
+La palabra y el concepto de “cobarde” tienen una connotación negativa, en la cultura humana en general. Pero los cobardes son los que sobreviven. Son premiados por la naturaleza. Y muy probablemente haya habido algún hombre en el pasado que, gracias a su cobardía, pudo sobrevivir y procrear, dando la vida a nuestros antepasados.  
+La muerte es el concepto dominante de la poesía. El autor usa con sabiduría palabras y sonidos duros para entregar al lector las sensaciones asociadas a la muerte. Las sensaciones transmitidas son de angustia, tristeza, exclusión.   
+Aunque sean sensaciones consideradas como “malas”, otra vez el juicio es totalmente arbitrario. Uno puede pensar que cualquier sensación es buena, ya que es testigo de nuestra vida y nuestra humanidad. Uno también puede pensar que ninguna sensación sea buena o mala, ya que todas son el producto de millones de años de evolución, dirigida por la Madre naturaleza.  
+Entonces, me zambullo en esta poesía, siento las sensaciones que el autor quiere transmitir, las observo, las disfruto.   
+Y así, me atrevo a mirarlas a los ojos. No me dan miedo, porqué son generadas por mí mismo ser.  
+Disfruté mucho de esta poesía. Es algo criptica, tuve que buscar alguna palabra (mi idioma materno no es el español), pero muestra así la capacidad literaria del autor, y se queda más libre para la interpretación y la fantasía del lector.
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+
+## II - por rimvaud
+
+Frío y distante,  
+un café con gusto a soledad   
+me susurra que te he perdido.  
+Lo sé.   
+Te he perdido  
+  
+Las paredes se ciernen sobre mi  
+y la lluvia desdibuja  
+las grullas de las porcelanas  
+de todas las tardes,  
+al tiempo que nuestras máscaras  
+estallan contra el suelo  
+y tu ausencia  
+se vuelve mi cruz.
+
+### Vanna Cirianni comentó:
+
+me parece interesante cómo las cosas con el mismo color, el mismo sabor, el mismo sonido pueden cambiar radicalmente su color, sabor y sonido sin cambiarlo, solo cambiando de tiempo, lugar y circunstancia. quizá el café con sabor a soledad alguna vez supo a ilusión o a hogar. me hace pensar en esa escena de 500 días con ella, donde el mismo montaje y las mismas características de la chica significan cosas opuestas cuando está enamorado de ella y cuando se separan y está despechado.  
+me gusta también la escena de la lluvia deslavando cosas, cosas cayendo en general, construyendo de golpe al final ese sentimiento de la ausencia como algo pesado. creo que siempre son oposiciones fuertes. lo que puede pesar un vacío, o una ausencia. cómo podemos no dejar de ver precisamente lo que no está. cómo el silencio es muchas veces lo que nos llama más la atención.
+
+### Chiara comentó:
+
+Un vacío en el pecho que pesa. Un anhelo que duele. Un anhelo dulce.   
+La universalidad de la pérdida, el duelo, las decisiones, sus consecuencias.   
+“...y tu ausencia se vuelve mi cruz”, es casi una regla básica del ser humano cargar con lo perdido, ¿no será que es ahí donde se encuentra la esencia de tener? Si nos pesara tanto perder, no nos comprometeríamos tanto con tener… Quizás esa sea justamente la razón de nuestros apegos.  
+Me dieron ganas de tomar un café con alguien que no quiero perder y disfrutar cada sorbo de compañía. También me dieron ganas de estar sola y en paz, en compañía de mí.  
+
+
+### Ale Borbón comentó:
+
+Hola , personalmente "ausencia de alguien" es un alfiler en mi vida por ahora .  
+  
+Así como "un café con gusto a soledad" puedo decir que una sábana, una taza , un platillo, un atardecer me saben a soledad con un toque de nostalgia y el ingrediente secreto " melancolía", pero en ocasiones también me recuerdan que estoy aquí ( en este cuerpo en esta vida ) por mi cuenta y soy perfectamente capaz de seguir así ( aunque a veces no lo quiera de tal modo).  
+  
+A veces me parece absurdo no poder soportar el peso de la soledad ,a veces amo que está soledad me regrese a mi misma .  
+  
+Gracias por compartir :D  
+
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+
+## Improvisación - por Marcos Matías
+
+Como me gustaría ser una hoja de un árbol bien alto, alto hasta el cielo. Y caer. Caer tranquila y pausadamente desde bien arriba. Y verlo todo, las copas de los árboles, que están alrededor y que fluyen como el viento, como olas. Y seguir cayendo, caer por las ramas, tropezarme, volar con el viento, perder el camino, ¿cuál camino? Y volver, ir y volver, ir y venir, desplazarme, moverme, danzar, planear junto a otras hojas que se van desprendiendo y que caen desde lo más alto del mundo, conmigo, con ellas. Nos vamos moviendo todas juntas. Algunas hasta encuentran su lugar entre las ramas, quietas por un rato, otras, seguimos cayendo, buscando. Ahora veo los árboles por dentro, estoy a mitad de camino y a lo lejos ya veo la tierra, llena de hojas, que como yo en algún momento, futuro, quietas por un rato ya encontraron su lugar. Lo tengo presente y sigo, hay mucho por ver hasta llegar.
+
+### Vanna Cirianni comentó:
+
+voy a hacer un poquito de trampa tal vez, y traer una autocita de una nota que escribí en 2017 (que horror el tiempo!!!). la idea de improvisación y las hojas en el viento me llevó derecho a este texto que escribí sobre una coreografía que se montó en CEPRODAC, una compañía de danza contemporánea en mexico (probablemente la más destacada), cuando era joven y tenia sueños y jugaba al periodismo cultural. Vladimir es el nombre del coreógrafo.  
+  
+"Como su nombre lo dice, Piso Móvil [es una técnica] construida en el trabajo de piso y el flujo continuo de movimiento: no detener ni aislar las cadenas musculares, sino usar los límites en el rango de movilidad como un impulso en la dirección contraria, y trasladar al aire la sensación de resistencia que ofrece el contacto con el piso. No es una idea sencilla, pero es esencial para generar la calidad activa y la presencia que Vladimir busca en el escenario.  
+(...)  
+En una de mis visitas a CEPRODAC, pude ver el entrenamiento y durante unos minutos observé con la cabeza al ras del suelo a los bailarines. La liberación de sus cuerpos se hizo mucho más evidente; al no requerir del sostén de las piernas, se asemejan a hojas de otoño dibujando espirales en el viento, se vuelven plásticos, tridimensionales, expresivos. Sus cuerpos dejan de ser cuerpos y son cualquier emoción que deseen proyectar."  
+  
+este es el link a la nota completa, por si te da curiosidad leer algo sobre un montaje que nunca vas a ver, ejecutado por un montón de gente que no conoces, pero escrito por una versión de mi que tampoco conoces: https://caminosonoro.blogspot.com/2017/07/jauria.html
+
+### Yuritzi comentó:
+
+Se sintió como un suspiro. Un suspiro\-anhelo.  
+Comparto el sentimiento de que la vida pasa bien rápido y la calma ya no llega a ser una elección sino una necesidad.  
+Me pareció que le diste una construcción muy armada a lo que querías transmitir:  
+Tanto en la elección de las palabras simples, por decirlo de alguna manera, nada de palabras rimbombantes o que pocos letrados conocen y hacen uso.  
+La composición de las oraciones, que marca un ritmo tranquilo, que permite respirar entre las oraciones y no sentir como que te van correteando o dejando sin oxígeno las oraciones larguísimas y que carecen de comas o signos que representarían en descanso en la andada de la lectura.  
+  
+Sobre todo, me dejas inmersa en mis pensamientos. Inmersa en suspiros\-anhelos. Gracias
+
+### Manoni comentó:
+
+Será que somos como las hojas, que tampoco saben que son, y al ser simplemente es sin saberlo, con todas las implicancias de su ser. Tampoco sabemos bien adonde vamos a llegar, ni que es el suelo.   
+Claro, tipico, un suelo de adoquines de una plaza, el pasto. Pero nunca es como pensamos porque a veces pensar es o bien en vano o bien una nueva construcción, necesaria en aspectos de supervivencia diferentes a los de sentirse flotar y bailar, tal como el oído, que quiso hace mucho, mas que apreciar un pianissimo de cuerdas, no ser pisado por un elefante.   
+O como las hojas que pisamos y crujen.
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+
+<div style="page-break-after: always;"></div>
+
+## Incorporarse - por Juan Zaragoza
+
+Sacudirse el polvo  
+levantar la vista  
+incorporarse  
+  
+Andar  
+sin ver la herida  
+valiente  
+frío  
+  
+Forzar los encuentros  
+los músculos  
+y el trabajo  
+por crecer  
+  
+Oír por lo bajo  
+algo dulce  
+y quebrarse  
+
+
+### Vanna Cirianni comentó:
+
+vengo llorona esta semana, pero igual tu poema me volvió a traer un nudo en la garganta. no es fácil en un poema tan corto. te diría mil cosas, pero no todas en público.
+
+### Cristian Ortiz comentó:
+
+Me gustan los momentos del texto, el ritmo que marcan las frases cortas (muy cómodo para leer y muy evocativo al tiempo) y la representación del movimiento. El final tiene una resonancia medio infantil (que antecede el ‘crecer’ del penúltimo párrafo) como a llorar después de hacerse el duro y además es el momento donde se contrasta lo perceptivo del oír con los verbos de movimiento y la negación voluntaria de la mirada propia. Me gusta la elección de ‘quebrarse’ frente a otras posibilidades como ‘llorar’, sé que igual es propia del rioplatense (que no es mi dialecto nativo), pero un cuerpo que se esfuerza por no derrumbarse está muy bien. No cambiaría nada, la verdad.
+
+### MartinCanela comentó:
+
+Una progresión interesante. La facilidad con la que se puede desmoronar esta retórica de la postergación voluntaria de las emociones, del intentar mil veces. Idea que se termina desbaratando ante el más pálido recuerdo de lo que fue eso que se quiere dejar atras por la supervivencia, de lo que puede ser. Creo que lo que más me impactó del poema es que ese encuentro con la palabra dulce que parece caotico para la persona en cuestión pero que es un necesario tear down the wall, es que el final, lapidario, tiene todos los rasgos de inevitabilidad. La confrontación más dura es que todavía hay dulzura en el mundo. No solo eso. Es inevitable encontrarsela, y cuanto más lejos se haya corrido e ignorado la herida, más dificil es conciliar con ella, pero no por eso va a dejar de aparecer. La indiferencia frente a las propias heridas siempre tiene una carga voluntaria perceptible e insoportable. La unica forma de naturalizar esa carga es convenciendonos de que no hay alternativa. Salir todos los días y encontrar pruebas de dulzura de solidaridad, es esa alternativa inherentemente dolorosa
+
+<p align='center'>
+<a href='index.html'>
+<img src='logo.png' alt='Logo' width='119' height='107'>
+</a></p>
+
+<div style="page-break-after: always;"></div>
+
 ## Alvear - por Nicolás Péés Labory
   
 Cuento los pasos, cuento las horas y los kilómetros mientras me acerco al departamento de la calle Alvear. Estoy yendo sin pensar mucho, sin saber a ciencia cierta qué me deparará el  
@@ -662,175 +896,6 @@ Muy linda la construcción de ese espacio íntimo y el trabajo con lo corporal. 
 
 <div style="page-break-after: always;"></div>
 
-## II - por rimvaud
-
-Frío y distante,  
-un café con gusto a soledad   
-me susurra que te he perdido.  
-Lo sé.   
-Te he perdido  
-  
-Las paredes se ciernen sobre mi  
-y la lluvia desdibuja  
-las grullas de las porcelanas  
-de todas las tardes,  
-al tiempo que nuestras máscaras  
-estallan contra el suelo  
-y tu ausencia  
-se vuelve mi cruz.
-
-### Vanna Cirianni comentó:
-
-me parece interesante cómo las cosas con el mismo color, el mismo sabor, el mismo sonido pueden cambiar radicalmente su color, sabor y sonido sin cambiarlo, solo cambiando de tiempo, lugar y circunstancia. quizá el café con sabor a soledad alguna vez supo a ilusión o a hogar. me hace pensar en esa escena de 500 días con ella, donde el mismo montaje y las mismas características de la chica significan cosas opuestas cuando está enamorado de ella y cuando se separan y está despechado.  
-me gusta también la escena de la lluvia deslavando cosas, cosas cayendo en general, construyendo de golpe al final ese sentimiento de la ausencia como algo pesado. creo que siempre son oposiciones fuertes. lo que puede pesar un vacío, o una ausencia. cómo podemos no dejar de ver precisamente lo que no está. cómo el silencio es muchas veces lo que nos llama más la atención.
-
-### Chiara comentó:
-
-Un vacío en el pecho que pesa. Un anhelo que duele. Un anhelo dulce.   
-La universalidad de la pérdida, el duelo, las decisiones, sus consecuencias.   
-“...y tu ausencia se vuelve mi cruz”, es casi una regla básica del ser humano cargar con lo perdido, ¿no será que es ahí donde se encuentra la esencia de tener? Si nos pesara tanto perder, no nos comprometeríamos tanto con tener… Quizás esa sea justamente la razón de nuestros apegos.  
-Me dieron ganas de tomar un café con alguien que no quiero perder y disfrutar cada sorbo de compañía. También me dieron ganas de estar sola y en paz, en compañía de mí.  
-
-
-### Ale Borbón comentó:
-
-Hola , personalmente "ausencia de alguien" es un alfiler en mi vida por ahora .  
-  
-Así como "un café con gusto a soledad" puedo decir que una sábana, una taza , un platillo, un atardecer me saben a soledad con un toque de nostalgia y el ingrediente secreto " melancolía", pero en ocasiones también me recuerdan que estoy aquí ( en este cuerpo en esta vida ) por mi cuenta y soy perfectamente capaz de seguir así ( aunque a veces no lo quiera de tal modo).  
-  
-A veces me parece absurdo no poder soportar el peso de la soledad ,a veces amo que está soledad me regrese a mi misma .  
-  
-Gracias por compartir :D  
-
-
-<p align='center'>
-<a href='index.html'>
-<img src='logo.png' alt='Logo' width='119' height='107'>
-</a></p>
-
-
-<div style="page-break-after: always;"></div>
-
-## Improvisación - por Marcos Matías
-
-Como me gustaría ser una hoja de un árbol bien alto, alto hasta el cielo. Y caer. Caer tranquila y pausadamente desde bien arriba. Y verlo todo, las copas de los árboles, que están alrededor y que fluyen como el viento, como olas. Y seguir cayendo, caer por las ramas, tropezarme, volar con el viento, perder el camino, ¿cuál camino? Y volver, ir y volver, ir y venir, desplazarme, moverme, danzar, planear junto a otras hojas que se van desprendiendo y que caen desde lo más alto del mundo, conmigo, con ellas. Nos vamos moviendo todas juntas. Algunas hasta encuentran su lugar entre las ramas, quietas por un rato, otras, seguimos cayendo, buscando. Ahora veo los árboles por dentro, estoy a mitad de camino y a lo lejos ya veo la tierra, llena de hojas, que como yo en algún momento, futuro, quietas por un rato ya encontraron su lugar. Lo tengo presente y sigo, hay mucho por ver hasta llegar.
-
-### Vanna Cirianni comentó:
-
-voy a hacer un poquito de trampa tal vez, y traer una autocita de una nota que escribí en 2017 (que horror el tiempo!!!). la idea de improvisación y las hojas en el viento me llevó derecho a este texto que escribí sobre una coreografía que se montó en CEPRODAC, una compañía de danza contemporánea en mexico (probablemente la más destacada), cuando era joven y tenia sueños y jugaba al periodismo cultural. Vladimir es el nombre del coreógrafo.  
-  
-"Como su nombre lo dice, Piso Móvil [es una técnica] construida en el trabajo de piso y el flujo continuo de movimiento: no detener ni aislar las cadenas musculares, sino usar los límites en el rango de movilidad como un impulso en la dirección contraria, y trasladar al aire la sensación de resistencia que ofrece el contacto con el piso. No es una idea sencilla, pero es esencial para generar la calidad activa y la presencia que Vladimir busca en el escenario.  
-(...)  
-En una de mis visitas a CEPRODAC, pude ver el entrenamiento y durante unos minutos observé con la cabeza al ras del suelo a los bailarines. La liberación de sus cuerpos se hizo mucho más evidente; al no requerir del sostén de las piernas, se asemejan a hojas de otoño dibujando espirales en el viento, se vuelven plásticos, tridimensionales, expresivos. Sus cuerpos dejan de ser cuerpos y son cualquier emoción que deseen proyectar."  
-  
-este es el link a la nota completa, por si te da curiosidad leer algo sobre un montaje que nunca vas a ver, ejecutado por un montón de gente que no conoces, pero escrito por una versión de mi que tampoco conoces: https://caminosonoro.blogspot.com/2017/07/jauria.html
-
-### Yuritzi comentó:
-
-Se sintió como un suspiro. Un suspiro\-anhelo.  
-Comparto el sentimiento de que la vida pasa bien rápido y la calma ya no llega a ser una elección sino una necesidad.  
-Me pareció que le diste una construcción muy armada a lo que querías transmitir:  
-Tanto en la elección de las palabras simples, por decirlo de alguna manera, nada de palabras rimbombantes o que pocos letrados conocen y hacen uso.  
-La composición de las oraciones, que marca un ritmo tranquilo, que permite respirar entre las oraciones y no sentir como que te van correteando o dejando sin oxígeno las oraciones larguísimas y que carecen de comas o signos que representarían en descanso en la andada de la lectura.  
-  
-Sobre todo, me dejas inmersa en mis pensamientos. Inmersa en suspiros\-anhelos. Gracias
-
-### Manoni comentó:
-
-Será que somos como las hojas, que tampoco saben que son, y al ser simplemente es sin saberlo, con todas las implicancias de su ser. Tampoco sabemos bien adonde vamos a llegar, ni que es el suelo.   
-Claro, tipico, un suelo de adoquines de una plaza, el pasto. Pero nunca es como pensamos porque a veces pensar es o bien en vano o bien una nueva construcción, necesaria en aspectos de supervivencia diferentes a los de sentirse flotar y bailar, tal como el oído, que quiso hace mucho, mas que apreciar un pianissimo de cuerdas, no ser pisado por un elefante.   
-O como las hojas que pisamos y crujen.
-
-<p align='center'>
-<a href='index.html'>
-<img src='logo.png' alt='Logo' width='119' height='107'>
-</a></p>
-
-
-<div style="page-break-after: always;"></div>
-
-## Incorporarse - por Juan Zaragoza
-
-Sacudirse el polvo  
-levantar la vista  
-incorporarse  
-  
-Andar  
-sin ver la herida  
-valiente  
-frío  
-  
-Forzar los encuentros  
-los músculos  
-y el trabajo  
-por crecer  
-  
-Oír por lo bajo  
-algo dulce  
-y quebrarse  
-
-
-### Vanna Cirianni comentó:
-
-vengo llorona esta semana, pero igual tu poema me volvió a traer un nudo en la garganta. no es fácil en un poema tan corto. te diría mil cosas, pero no todas en público.
-
-### Cristian Ortiz comentó:
-
-Me gustan los momentos del texto, el ritmo que marcan las frases cortas (muy cómodo para leer y muy evocativo al tiempo) y la representación del movimiento. El final tiene una resonancia medio infantil (que antecede el ‘crecer’ del penúltimo párrafo) como a llorar después de hacerse el duro y además es el momento donde se contrasta lo perceptivo del oír con los verbos de movimiento y la negación voluntaria de la mirada propia. Me gusta la elección de ‘quebrarse’ frente a otras posibilidades como ‘llorar’, sé que igual es propia del rioplatense (que no es mi dialecto nativo), pero un cuerpo que se esfuerza por no derrumbarse está muy bien. No cambiaría nada, la verdad.
-
-### MartinCanela comentó:
-
-Una progresión interesante. La facilidad con la que se puede desmoronar esta retórica de la postergación voluntaria de las emociones, del intentar mil veces. Idea que se termina desbaratando ante el más pálido recuerdo de lo que fue eso que se quiere dejar atras por la supervivencia, de lo que puede ser. Creo que lo que más me impactó del poema es que ese encuentro con la palabra dulce que parece caotico para la persona en cuestión pero que es un necesario tear down the wall, es que el final, lapidario, tiene todos los rasgos de inevitabilidad. La confrontación más dura es que todavía hay dulzura en el mundo. No solo eso. Es inevitable encontrarsela, y cuanto más lejos se haya corrido e ignorado la herida, más dificil es conciliar con ella, pero no por eso va a dejar de aparecer. La indiferencia frente a las propias heridas siempre tiene una carga voluntaria perceptible e insoportable. La unica forma de naturalizar esa carga es convenciendonos de que no hay alternativa. Salir todos los días y encontrar pruebas de dulzura de solidaridad, es esa alternativa inherentemente dolorosa
-
-<p align='center'>
-<a href='index.html'>
-<img src='logo.png' alt='Logo' width='119' height='107'>
-</a></p>
-
-
-<div style="page-break-after: always;"></div>
-
-## La filosofía estructural - por Fernando Gargano
-
-Alguna vez vi una planta tragarse entera a una casa. Estuve allí. Solo precisó tiempo. Las raíces y los ladrillos eran una sola entidad. El olor, el mismo. Los ruidos, los del viento. Como hojas secas revoque y mampostería se desbandaban en otoño. Armando un suelo de monte, en franco desnivel.  
-Fue en la ciudad. En el centro de la manzana. Al final de un pasillo transitado por insectos de humedad que de las hojas y el musgo fabricaban humus.  
-Supe dejar ser. ¿Qué alternativa tenía ante la fuerza del océano terrestre?  
-Como un reloj, si la comparación no violenta el silencio, un colibrí bebía de los pétalos lilas. Una avispa hizo su nido sembrando mi terror y espanto. Una gata gris enorme y preñada se apropió de un viejo colchón. Allí nacieron aquellas panteras que una a una despoblaron el lote en sus exilios.  
-El colibrí, picaflor nervioso alguna vez detuvo su marcha. Me convocó con un cascabeleo maquínico y se paró en una rama diminuta como una hebra de hilo. Tomé la foto y en segundos desapareció de la vista. Fue solo una vez. Se habría cansado, se habría sorprendido. Nunca pude explicar la detención.  
-Ayer, ocho de Octubre tras muchos años después, vi este estanque vegetal en un pasillo silencioso de San Telmo. Es un inicio, no va a perdurar. No lo salvarán sus tres metros desde el suelo, o su diminuto tamaño estructural. La planta central no alcanza los cuatro centímetros. Todo el conjunto mide cuatro pulgadas. En una ciudad de millones, tiene la entidad del polen en el universo; sin embargo, de esto estoy seguro, podría devorarse la casa entera si le dieran tiempo.  
-
-
-### Agustin Iribarne comentó:
-
-Si este texto es una analogía con el estructuralismo pero parece muy adecuado e interesante, pero desconozco sus bases. De todos modos está muy bien pensado y es muy poético. Me gustan los giros como "océano terrestre", y "Allí nacieron aquellas panteras que una a una despoblaron el lote en sus exilios". La fuerza poética del texto me hace volver sobre las frases, y no quisiera que termine.  
-Algunas ideas de correción. La frase "si la comparación no violenta el silencio" la pondría entre guiones más que entre comas, para que separe al discurso de otro modo. Siento que quedaría mejor. Por otro lado, la frase "tras muchos años después" siento que queda redundante. Propongo: tras muchos años (hasta ahí) o tras muchos años, despues que ... (y completar la frase)  
-Es interesante cómo relaciona ámbitos tan diversos entre sí como la ciudad y la naturaleza, y su forma de vincularse. Creo que se podría extender un poco más, jugar más con estas relaciones y profundizarlas. El tono del texto te lleva y eso es muy positivo.
-
-### Gerardo comentó:
-
- Hace no mucho tiempo vi árboles tragarse tumbas . Fue en el rincón mas recóndito de un cementerio ubicado en el Istmo de Tehuantepec. Los pobladores les llaman atrapa tumbas. Los árboles se posan cual si fueran aves en el techo de las tumbas y  sus raíces, poderosas e implacables penetran al interior de las bóvedas en busca tal vez de los huesos del difunto.  
-Nadie visita ese lugar. Los últimos cuerpos que algún día depositaron una flor o una plegaria ya son  canto en el viento istmeño, alimento de pochotes o intrusos incógnitos de algún mineral que habitó una mazorca.  
-De modo que entré a tu relato por la puerta grande, tan grande que lo abracé en cuerpo y alma, es decir, escritura , a esto que ahora estás leyendo.  
-Gracias, muchas gracias
-
-### Nicolás Mercado comentó:
-
-Textazo. En los bordes del terror y la belleza.
-
-### Umi comentó:
-
-Leerte me recordó un texto que escribí, inspirada en mi casa favorita. Una casa que estaba a pocas cuadras del lugar donde vivía, salía a pasear con la perrita con la excusa de ir a verla. Y me quedaba allí, inventado historias, y esperando ver cual se hacía realidad ese día.  
-Aun no se el porque, pero cuando me imagino allí parada, me recuerdo como niña. Por algún motivo me conecta con la niña que soy. Mientras te leía también despertó eso en mi. Y me pareció gracioso imaginarme como me estaba viendo desde fuera, por la cantidad de gestualidad que estaba creando.  
-Gracias 🫂  
-
-
-<p align='center'>
-<a href='index.html'>
-<img src='logo.png' alt='Logo' width='119' height='107'>
-</a></p>
-
-
-<div style="page-break-after: always;"></div>
 
 ## La vejez y ser mujer y todo a la vez  - por Dos nombres
 
@@ -1187,71 +1252,6 @@ Me encontré sonriendo en varios momentos. Por ejemplo, en la explicación sobre
 Me gustó conocer que existen monumentos en lugares públicos dedicados a personas comunes.  
   
 Imaginé que, visitando Cuba como argentina, tal vez no me hubieran sorprendido las mismas cosas que al narrador, por el hecho de vivir yo en un país con mayor caos y pobreza que los países de Europa.
-
-<p align='center'>
-<a href='index.html'>
-<img src='logo.png' alt='Logo' width='119' height='107'>
-</a></p>
-
-
-<div style="page-break-after: always;"></div>
-
-## Reflexión de un cobarde - por MartinCanela
-
-A veces pienso que vine a este mundo  
-A cantarle de espaldas a los muertos  
-A remover viejas coplas  
-En desiertos de huesos calcinados  
-Y pensar que de alguna forma me pertenecen más a mi que a otros.  
-  
-Siempre con la altivez de estar vivo,  
-Me inclino frente a los árboles que no tienen más que hojas y llanto agrio;  
-Y mientras me arrancan las notas de nada  
-Las manos blancas y descarnadas, se arrastran detrás  
-Se aferran con esfuerzo al cadalso.  
-  
-No me quieren los muertos, para ellos estoy demasiado vivo, soy demasiado ingenuo  
-Y cuando de mañana abro mis rojas alas de pena, se quejan de que les tapan el sol  
-Tampoco me quieren los árboles  
-Con su piel ruda y sus raices vigorosas   
-No me prestarán sus copas para vislumbrar colina alguna  
-No me darán sus frutos  
-Para ellos estoy demasiado muerto.  
-  
-Y quizá no se equivoquen. Nunca me alcé de esta piedra.  
-Este yeso oblongo, que lleva grabado una glíptica incierta  
-Y al olvido, yo le haría tan grata compañía  
-(Si tan solo me atreviera a mirarlo a los ojos)  
-Y el enterrador, que con su bota cercena pieles y cabezas, se me hace un ser tan vil  
-Sin embargo pasa, y no le objeto nada.  
-Ni una palabra  
-
-
-### Paula comentó:
-
-Ya desde el título entiendo que voy a entrar a una situación incómoda. No me gusta sentirme cobarde.  
-  
-La referencia a muertos, huesos y desierto me lleva a mis propios duelos.  
-  
-Percibo un ataque con la expresión “me arrancan las notas” y me pregunto si tendrá que ver con el daño que, como personas, somos capaces de generarnos a nosotras mismas. Por ejemplo, cuando tenemos la certeza de que nadie nos quiere, ni siquiera los muertos.  
-  
-“Nunca me alcé de esta piedra” me recuerda mis propios auto\-reproches, cuando me pongo a rumiar sobre las cosas que “debería haber hecho” y me convierto en mi propia enemiga.
-
-### Mariano Fernandez Zaragoza comentó:
-
-A veces, siempre y/o quizás.  
-Ahora existe un mundo, transitable, entre el cielo de las copas y las coplas y el suelo de cenizas y pasado. Un poema rojo y gris que muestra inmensas posibilidades pero denota una quietud moribunda. Aparecen intermedios que lejos de ser equilibrios son exclusiones agónicas. Como si se pudiese, pararse entre todo, y darle a todo la espalda.  
-Para mi, me quedo pensando en la arena, el barro, el suelo y la tierra.   
-La cobardía es telúrica. ¿Y el coraje también?
-
-### Fede comentó:
-
-La palabra y el concepto de “cobarde” tienen una connotación negativa, en la cultura humana en general. Pero los cobardes son los que sobreviven. Son premiados por la naturaleza. Y muy probablemente haya habido algún hombre en el pasado que, gracias a su cobardía, pudo sobrevivir y procrear, dando la vida a nuestros antepasados.  
-La muerte es el concepto dominante de la poesía. El autor usa con sabiduría palabras y sonidos duros para entregar al lector las sensaciones asociadas a la muerte. Las sensaciones transmitidas son de angustia, tristeza, exclusión.   
-Aunque sean sensaciones consideradas como “malas”, otra vez el juicio es totalmente arbitrario. Uno puede pensar que cualquier sensación es buena, ya que es testigo de nuestra vida y nuestra humanidad. Uno también puede pensar que ninguna sensación sea buena o mala, ya que todas son el producto de millones de años de evolución, dirigida por la Madre naturaleza.  
-Entonces, me zambullo en esta poesía, siento las sensaciones que el autor quiere transmitir, las observo, las disfruto.   
-Y así, me atrevo a mirarlas a los ojos. No me dan miedo, porqué son generadas por mí mismo ser.  
-Disfruté mucho de esta poesía. Es algo criptica, tuve que buscar alguna palabra (mi idioma materno no es el español), pero muestra así la capacidad literaria del autor, y se queda más libre para la interpretación y la fantasía del lector.
 
 <p align='center'>
 <a href='index.html'>
@@ -1642,9 +1642,9 @@ Me gustó. No se si ya está terminado o si es un inicio de algo, de todas maner
 
 ### Nicolás Rosa comentó:
 
-     Al leer el texto creí que quizás intentar imaginarme a Dopata a partir de las tierras que ya conozco podría ser una actividad interesante. Después, me di cuenta de lo acotadas que son mis propias experiencias.  
+Al leer el texto creí que quizás intentar imaginarme a Dopata a partir de las tierras que ya conozco podría ser una actividad interesante. Después, me di cuenta de lo acotadas que son mis propias experiencias.  
   
-      El texto tiene algo de crónica, algo de relato de viaje que de jacta de lo exótico y de lo distinto, pero a la vez se diferencia de estos porque aquella tierra utópica no solo es distinte en kilómetros de tierra y de costumbres sino que también el fundamento del azar la hace inalcanzable en sentidos más allá de los que pueden calcularse de una tierra a otra, en sentidos que exceden las herramientas que la razón nos provee para realizar medidas. Uno podría atajarse de todo problema y decir que al tratarse de tierras tan distinas y que como los parámetros para calcular la calidad de mi tierra son intransladables e intraducibles para pensar Dopata lo mejor sería considerar que son tierras incomparables, esto claro, en beneficio de quién compare ya que podría ignorar un hecho que no dejaría su lugar de origen bien parado: Dopata no tiene errores, miserias o tropiezos. Si tuviese que pensar un lugar como Dopata, una locación azarosa la cual para quienes viven allí no se trata de una tierra pequeña, podría aventurarme a decir que Dopata es el mundo. Pero en ese caso habría que profesar a Leibniz y Hegel tan vehementemente como para creer que en este mundo alguien vive bien. Ya quisiera el mundo ser Dopata.
+El texto tiene algo de crónica, algo de relato de viaje que de jacta de lo exótico y de lo distinto, pero a la vez se diferencia de estos porque aquella tierra utópica no solo es distinte en kilómetros de tierra y de costumbres sino que también el fundamento del azar la hace inalcanzable en sentidos más allá de los que pueden calcularse de una tierra a otra, en sentidos que exceden las herramientas que la razón nos provee para realizar medidas. Uno podría atajarse de todo problema y decir que al tratarse de tierras tan distinas y que como los parámetros para calcular la calidad de mi tierra son intransladables e intraducibles para pensar Dopata lo mejor sería considerar que son tierras incomparables, esto claro, en beneficio de quién compare ya que podría ignorar un hecho que no dejaría su lugar de origen bien parado: Dopata no tiene errores, miserias o tropiezos. Si tuviese que pensar un lugar como Dopata, una locación azarosa la cual para quienes viven allí no se trata de una tierra pequeña, podría aventurarme a decir que Dopata es el mundo. Pero en ese caso habría que profesar a Leibniz y Hegel tan vehementemente como para creer que en este mundo alguien vive bien. Ya quisiera el mundo ser Dopata.
 
 ### Juan Silis comentó:
 
@@ -2101,8 +2101,6 @@ Me causo mucha intriga la razón de tu título elegido ,espero poder saberlo .
   
 Gracias por tu texto :)  
   
-  
-
 
 <p align='center'>
 <a href='index.html'>
